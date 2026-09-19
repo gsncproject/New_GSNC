@@ -9,10 +9,19 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
+>- [[Kate Morgan]]
 >———
 >**Important Events**:
+>- Lots of people report the sense of loosing time without remembering how they got from one place to another.
+>- They figure that the death of Kate Morgan has got to be a murder and not a suicide.
 >———
 >**Patterns**:
+>- [[It‘s me]]
+>- [[Fire]]
+>- [[Me]]
+>- [[Four]]
+>- [[Screams]]
+>- [[Below]]
 
 **Tourguide**: If you go looking for things they find you. 
 
