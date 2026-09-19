@@ -10,7 +10,7 @@
 			- [x] - Ukraine Catacombs  [completion:: 2026-04-03]
 			- [x] - Conjuring House (2)  [completion:: 2026-07-28]
 			- [x] - Pine Barrens  [completion:: 2026-07-28]
-			- [ ] - Hotel Del Coronado 
+			- [x] - Hotel Del Coronado  [completion:: 2026-09-19]
 			- [ ] - Waverly Hills Sanatorium 
 			- [ ] - Queen Mary Ship (2)
 		- [ ] - November 2021 - December 2021 

@@ -1,4 +1,4 @@
-#HellWeek21 #vol_I #gsnc #videos 
+#HellWeek21 #vol_I #gsnc 
 
 >[!Information]
 >https://youtu.be/JQqCr02oM6s?is=xdJjZ1lYfXM-HStS
