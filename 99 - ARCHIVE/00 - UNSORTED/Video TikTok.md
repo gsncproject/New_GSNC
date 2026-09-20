@@ -1,0 +1,5 @@
+- [ ] — Things I thought were a joke until they became part of the lore 
+- [ ] — The rabbit hole that caused GSNC
+- [ ] — My last remaining brain cell trying to explain this theory 
+- [ ] — What if entities aren‘t always who they claim to be?
+- [ ] — 
