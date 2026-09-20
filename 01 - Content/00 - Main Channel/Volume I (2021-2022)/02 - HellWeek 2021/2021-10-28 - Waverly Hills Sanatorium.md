@@ -27,6 +27,7 @@
 >- [[Seven]] / [[One]] / [[Five]]
 >- [[Music]] (The Music Box was the most active)
 >- [[Me]]
+>- [[Screams]]
 
 - Waverly was a tuberculosis hospital, then a nursing home and now one of the most known haunted places in the world.
 	- Known for shadow figures.

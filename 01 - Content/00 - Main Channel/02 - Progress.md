@@ -11,7 +11,7 @@
 			- [x] - Conjuring House (2)  [completion:: 2026-07-28]
 			- [x] - Pine Barrens  [completion:: 2026-07-28]
 			- [x] - Hotel Del Coronado  [completion:: 2026-09-19]
-			- [ ] - Waverly Hills Sanatorium 
+			- [x] - Waverly Hills Sanatorium [completion:: 2026-09-20]
 			- [ ] - Queen Mary Ship (2)
 		- [ ] - November 2021 - December 2021 
 			- [x] - Sallie House !!!!  [completion:: 2026-05-23]
