@@ -28,7 +28,7 @@ They have the whole ship for themselves due to it being closed off for the publi
 	- Even prisoners of war were kept in the isolation chambers downstairs and ended up dying there 
 - After the war it permernently docked in Long Beach, California and became a hotel 
 
-- Amanda saw a man in flames (turns out there wa a cook that got burned in an oven and died due to his injuries)
+- Amanda saw a man in flames (turns out there was a cook that got burned in an oven and died due to his injuries)
 - In the pool there is a ghost named Jackie haunting it
 	- The door behind them started opening on his own.
 - People that died on board were put in the freezer.
