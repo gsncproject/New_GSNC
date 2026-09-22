@@ -1,22 +1,14 @@
 # Colby's Attachment????
-So I was arguing with someone on TikTok about Colby's attachment.
-
-She said that she thinks Colby has an attachment and that the attachment is called **Mason**.
-
-I was like NAHHHH because I think **Mason is an actual person** and that Colby's attachment is actually **Dennis**.
+So I was arguing with someone on TikTok about Colby's attachment. She said that she thinks Colby has an attachment and that the attachment is called **Mason**. I was like NAHHHH because I think **Mason is an actual person** and that Colby's attachment is actually **Dennis**.
 
 So obviously I had to ask GhostTube, cuz yeee
-
 I asked what the name of the attachment was and it said:
-
 > "It's unknown"
 
 Then it gave me:
-
 > "Julia"
 
 and
-
 > "Thomas"
 
 ??????????
@@ -40,5 +32,3 @@ Especially the GhostTube answers because like... it literally gave me different 
 - Did Sam/Colby ever identify the attachment themselves?
 - Are any of these names connected to the same person/entity?
 - Or am I once again making everything 500x more complicated than it needs to be
-**STATUS: PARKED FOR NOW.**
-Need actual evidence before deciding what the fuck this is.
