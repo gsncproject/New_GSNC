@@ -39,8 +39,11 @@ Sam
 He made me
 Sorry I was
 Was that 
-Colby 
-I lose him 
+
+>Colby 
+>
+>I lose him 
+
 You all 
 Listen 
 I think
