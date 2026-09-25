@@ -16,7 +16,7 @@
 >- [[Egregore]] 
 >———
 >**Important Events**:
->- Colby mentions Egregore 
+>- Colby mentions [[Egregore]] 
 >- Celina calls because of a dream she had (unknowingly that in someway it becomes true) 
 >- Kris feels like someone pushes against her bag 
 >- Kris is targeted by what could be Steve 

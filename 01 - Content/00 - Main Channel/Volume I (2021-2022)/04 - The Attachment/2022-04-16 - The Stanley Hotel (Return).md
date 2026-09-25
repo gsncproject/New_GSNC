@@ -21,7 +21,7 @@
 >———
 >**Important Events**:
 >- They believe that Lucy is Sam‘s attachment rather than Sallie 
->- Colby mentions Egregore 
+>- Colby mentions [[Egregore]] 
 >- The toilet in Paul‘s Room randomly flushes on its own
 >- (Possibility of the Minions starting there)
 >———
