@@ -11,9 +11,10 @@
 - [[Minions Theory]]
 - [[The Sallie House]]
 - [[The Bellaire House]]
+- [[Bellaire House]]
 - [[2022-04-16 - The Stanley Hotel (Return)]]
 - [[Estes Method]]
-
+#### 2026-09-12
 Let‘s talk about Sam Golbach‘s attachment cuz I feel like no one talks about it anymore.
 
 (*Disclaimer: I will call Sam‘s attachment as “it” for a reason. So just don‘t be confused by it.*)

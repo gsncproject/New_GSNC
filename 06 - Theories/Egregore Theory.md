@@ -7,7 +7,7 @@
 - [[Emily]]
 - [[Puppeteer Theory]]
 - [[Egregore]]
-
+#### 2026-09-16
 (Okay hear me the fuck out.)
 
 What if Sallie, Lucy, Emily and the other names aren't simply different identities of one entity?

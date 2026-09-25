@@ -1,6 +1,6 @@
 #version_I #gsnc 
 
->[[Sam Golbach]] = He almost got possessed is Zak Bagans Haunted Museum
+>[[Sam Golbach]] = He almost got possessed at [[2022-05-22 - Zak Bagans Haunted Museum]]
 
 Eleven 
 Get that 
@@ -41,7 +41,6 @@ Sorry I was
 Was that 
 
 >Colby 
->
 >I lose him 
 
 You all 

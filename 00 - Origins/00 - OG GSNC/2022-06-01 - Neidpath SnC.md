@@ -1,5 +1,16 @@
 #version_I #gsnc 
 
+**Related Notes**:
+- [[Joline F]]
+- [[Lena B]]
+- [[Sam Golbach]]
+- [[Colby Brock]]
+- [[Jake Webber]]
+- [[Corey Scherer]]
+- [[Jean Douglas]]
+- [[Queen Mary Tudor]]
+- [[Queen Mary Stuart]]
+
 (Mini-Me = Lena as 6y.o)
 
 **10:20** – Colby recognizes something what the others don’t/he sees a lady.
@@ -37,7 +48,7 @@ Little energy: between Sam and Corey.
 
 While Corey is doing the dowsing roods is an exhausted energy next to him as he asked if it’s a female, it slightly moves outwards.
 
-They are freaking out because it may be Mary of Teck. Mini-Me: «Bitches, I had a dream, calm down.»
+They are freaking out because it may be Mary of Tudor. Mini-Me: «Bitches, I had a dream, calm down.»
 
 Colby’s staring Mini-Me into her soul!
 **Jake**: «Stop staring like that, its freaking me out.»

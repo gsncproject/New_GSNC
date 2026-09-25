@@ -22,7 +22,7 @@ Sorry *2x*
 [[Three]] 
 Hello 
 Mary 
-[[Joline (F)|Joline]]  
+[[Joline F|Joline]]  
 Closer 
 Something 
 I‘ve got me 
