@@ -11,7 +11,7 @@
 >**Entities/Spirits**:
 >- [[Stacie (Yorktown)]] 
 >- Nuns (who hate Tattoos)
->- [[Debbie (Nurse)]]
+>- [[Debbie (Nurse, Yorktown)]]
 >- ([[Mary (Yorktown)]])
 >- [[Dr. Novarnski]] 
 >- [[Priest (Yorktown)]]

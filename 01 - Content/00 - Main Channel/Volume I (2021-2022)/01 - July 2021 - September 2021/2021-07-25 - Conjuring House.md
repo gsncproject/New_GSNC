@@ -12,7 +12,7 @@
 >- Kid mimic (?)
 >- Soldier Spirits  
 >- Children Spirits 
->- [[Beelzebub]]  
+>- [[Beelzebub (Conjuring)]]  
 >- [[Bathsheeba Sherman]]
 >——— 
 >**Important Events**:

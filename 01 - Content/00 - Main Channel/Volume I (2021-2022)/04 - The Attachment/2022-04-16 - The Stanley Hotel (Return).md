@@ -15,8 +15,8 @@
 >- [[Lucy]] (Minion)
 >- [[Hell Hounds]] 
 >- [[Paul (the janitor)]]
->- [[Dennis (shadow figure)]]
->- [[Eddie (smelly guy)]]
+>- [[Dennis (shadow figure, Stanley)]]
+>- [[Eddie (smelly guy, Stanley)]]
 >- [[Jackie (unknown)]]
 >———
 >**Important Events**:

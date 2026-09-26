@@ -10,7 +10,7 @@
 >**Entities/Spirits**:
 >- [[Don Juan Bandini]] 
 >- [[Yisdora Bandini]]
->- [[Carlos (the guitarist)]]
+>- [[Carlos (the guitarist, Cosmo)]]
 >- [[Cowboy (Cosmo)]]
 >- [[Unnamed girl (twelve years old)]]
 >- [[Julia (unknown)]]

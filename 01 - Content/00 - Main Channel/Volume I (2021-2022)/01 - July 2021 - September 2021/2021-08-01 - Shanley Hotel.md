@@ -14,9 +14,9 @@
 >- [[Jessica (child?)]] 
 >- [[Frank (likes to choke u)]]
 >- [[Maddie (Lady of the evening)]]
->- [[Anna (Lady of the evening)]]
+>- [[Anna (Lady of the evening, Shanley)]]
 >- [[Rosie (three year old)]]
->- [[Adam (the killer)]]
+>- [[Adam (the killer, Shanley)]]
 >- [[Beatrice Shanley]]
 >———
 >**Important Events**:

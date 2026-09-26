@@ -10,7 +10,7 @@
 >[!Quick Summary]
 >**Entites/Spirits**:
 >- [[Irene McColl]] 
->- [[Arthur (man found in Boiler Room)]]
+>- [[Arthur (man found in Boiler Room, Wangi Wangi)]]
 >———
 >**Important Events**:
 >- Lots of disembodied voices 

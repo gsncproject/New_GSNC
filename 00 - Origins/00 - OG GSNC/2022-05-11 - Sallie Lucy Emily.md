@@ -9,7 +9,7 @@ Also Sam is easy to get.
 Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
 
 ---
-[[Lucy]]/[[Eddie (smelly guy)]] = Stanley 
+[[Lucy]]/[[Eddie (smelly guy, Stanley)]] = Stanley 
 [[Sallie]] = Sallie House 
 [[Emily]]/[[Susie (Fairfield)]] = Madison 
 Sarah = Fairfield 
@@ -32,7 +32,7 @@ Queen Mary = Sam‘s Attachment
 
 Haunted School = NO!
 
-Stanley = [[Paul (Stanley)]] / [[Eddie (smelly guy)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
+Stanley = [[Paul (Stanley)]] / [[Eddie (smelly guy, Stanley)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
 
 --- 
 ## Release Ritual

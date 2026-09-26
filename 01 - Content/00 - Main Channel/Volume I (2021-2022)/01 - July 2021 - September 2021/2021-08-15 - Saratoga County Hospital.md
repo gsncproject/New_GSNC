@@ -9,7 +9,7 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[Charlie (Basement)]]
+>- [[Charlie (Basement, Saratoga)]]
 >- [[Kid (unnamed, Saratoga)]]
 >———
 >**Important Events**:
