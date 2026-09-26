@@ -12,7 +12,7 @@
 >- [[Henry (Shanley Hotel)]]
 >- [[TJ (Shanley Hotel)]]
 >- [[Jessica (child?)]] 
->- [[Frank (likes to choke u)]]
+>- [[Frank (likes to choke u, Shanley)]]
 >- [[Maddie (Lady of the evening)]]
 >- [[Anna (Lady of the evening, Shanley)]]
 >- [[Rosie (three year old)]]

@@ -18,7 +18,7 @@
 >- [[John (Bathroom guy)]]
 >- [[Dean (fourteen years old, Trans-Allegheny)]]
 >- [[Big Jim (Trans-Allegheny)]]
->- [[Frank (Fun guy)]]
+>- [[Frank (Fun guy, Trans-Allegheny)]]
 >- [[Larry (Fun guy)]]
 >- [[James Woods]]
 >- [[The Mimic]]
