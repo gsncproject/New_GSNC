@@ -14,8 +14,8 @@ He was
 Warren 
 Was me
 Multiply
-Me 
-It‘s me 
+[[Me]] 
+[[It‘s me]] 
 All of us
 Sam 
 Mine 
@@ -46,17 +46,17 @@ Was that
 You all 
 Listen 
 I think
-Friend 
+[[Friend]] 
 All of you 
 Get me
 Waiting 
 For me
 I hold ya
-Me *2x*
+[[Me]] *2x*
 You lied
 Losing
-Seven 
-Time 
+[[Seven]] 
+[[Time]] 
 Book
 Got him
 Come 
@@ -69,6 +69,21 @@ Listen
 Has to come 
 Sammy 
 Toward
-I‘ve been here 
+[[I‘ve been here]] 
 2015
 I‘m leaving
+Sad
+[[Friend]]
+Book 
+I‘m leaving 
+
+---
+## Cecil Hotel 
+Why the fuck does the Cecil Hotel follow us every frigging day? But for real, it suddenly came up and now it follows us and we have no idea why it does that…:( I mean the SB itself meant it.
+
+---
+#### Asking SB about the Cecil:
+- „Why are we told about it?“
+	- Yeah, go there 
+- „Why should we go to the Cecil?“
+	- That‘s it, me 
