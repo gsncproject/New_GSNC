@@ -55,12 +55,48 @@
 - [[Itzy]]
 # J
 - [[Jackie (unknown)]]
+- [[James (soldier)]]
+- [[James Campbell]]
+- [[James Woods]]
+- [[Janitor (Farrar)]]
+- [[Jean Douglas]]
+- [[Jenny (Magnolia)]]
+- [[Jessica (child?)]]
+- [[John (Bathroom guy)]]
+- [[John (unknown, Conjuring)]]
+- [[John Johnson]]
+- [[Joline Woods]]
+- [[Jonesie (A doctor?)]]
+- [[Joseph Andreu]]
+- [[Joseph Kallinger]]
+- [[Julia (unknown)]]
 # K
+- [[Kate Morgan]]
+- [[Kid (unnamed, Saratoga)]]
 # L
+- [[Larry (Fun guy)]]
+- [[Librarian (Farrar)]]
+- [[Lily (disguise)]]
+- [[Lucy]]
 # M
+- [[Maddie (Lady of the evening)]]
+- [[Maggie (unknown, Conjuring)]]
+- [[Major William Harn]]
+- [[Maria Andreu]]
+- [[Marie (unknown)]]
+- [[Marie Mahler]]
+- [[Mark (unknown)]]
+- [[Mary (Yorktown)]]
+- [[Mary Hillenburg]]
+- [[Mary Pittee]]
+- [[Mike (unknown)]]
+- [[Mr. Deavors]]
 # N
+/
 # O
+- [[Oscar Washburn]] 
 # P
+- [[Park Street]]
 # Q
 # R 
 # S
