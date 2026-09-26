@@ -106,12 +106,54 @@
 - [[Priest (Yorktown)]]
 - [[Principal (Farrar)]]
 # Q
+- [[Queen Mary Stuart]]
+- [[Queen Mary Teck]]
+- [[Queen Mary Tudor]]
 # R 
+- [[Rebecca (unknown)]]
+- [[Rosebud (prosititute)]]
+- [[Rosie (three year old)]]
 # S
+- [[Sallie]]
+- [[Sallie Lucy]]
+- [[Sara (heartbreak c.o.d)]]
+- [[Sara Johnson]]
+- [[Shadow Figures]]
+- [[Stacie (Yorktown)]]
+- [[Steve (KKK Leader)]]
+- [[Steve (Williams dog)]]
+- [[Steven (Shadow Figure)]]
+- [[Steven Jet]]
+- [[Strigoi]]
+- [[Susie Mahler]]
 # T 
+- [[The Atco Ghost]]
+- [[The Creeper]]
+- [[The Golden-Haired Girl]]
+- [[The Hat Man]]
+- [[The Jersey Devil]]
+- [[The Mimic]]
+- [[The Pittee Girls]]
+- [[The Sam(s) - Malina‘s Trances]]
+- [[The White Stag]]
+- [[Timmy]]
+- [[TJ (Shanley Hotel)]]
+- [[Tony (unknown)]]
+- [[Tricksters]]
+- [[Tulpa]]
 # U 
+- [[Unnamed girl (twelve years old)]]
 # V 
+- [[Vlad The Impaler]]
 # W
+- [[William (Homeless guy)]]
+- [[William Faust]]
+- [[Willy (unknown)]]
+- [[Wilson Kid]]
+- [[Woman in Black (unknown who, Wilson)]]
 # X
+/
 # Y 
+- [[Yisdora Bandini]]
 # Z
+/
