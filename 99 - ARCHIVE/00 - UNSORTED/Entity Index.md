@@ -97,6 +97,14 @@
 - [[Oscar Washburn]] 
 # P
 - [[Park Street]]
+- [[Paul (Stanley)]]
+- [[Paul (the janitor)]]
+- [[Paul Smith]]
+- [[Peggy the Doll]]
+- [[Peter Rasmussen]]
+- [[Poltergeists]]
+- [[Priest (Yorktown)]]
+- [[Principal (Farrar)]]
 # Q
 # R 
 # S
