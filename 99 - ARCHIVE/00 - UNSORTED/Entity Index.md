@@ -9,15 +9,52 @@
 # B
 - [[Bathsheeba Sherman]]
 - [[Beatrice Shanley]]
-- [[Beelzebub (Conjuring)]]
+- [[Beelzebub (Conjuring)]] 
+- [[Big Jim (Trans-Allegheny)]]
+- [[Bill and Peggy]]
 # C
+- [[Carlos (the guitarist, Cosmo)]]
+- [[Charlie (Basement, Saratoga)]]
+- [[Charlie (Bathroom guy, Trans-Allegheny)]]
+- [[Cowboy (Cosmo)]]
+- [[Cowboy (courtyard, Magnolia)]]
 # D 
+- [[David (Waverly)]]
+- [[Dean (fourteen years old, Trans-Allegheny)]]
+- [[Debbie (Nurse, Yorktown)]]
+- [[Dennis (shadow figure, Stanley)]]
+- [[Dennis Hof]]
+- [[Don Juan Bandini]]
+- [[Doppelgänger]]
+- [[Dr. Novarnski]]
+- [[Dybbuk]]
 # E
+- [[Eddie (smelly guy, Stanley)]]
+- [[Egregore]]
+- [[Elemental]]
+- [[Eliza Pittee]]
+- [[Elizabeth Wilson]]
+- [[Ellie (St. Augustine Lighthouse)]]
+- [[Emily]]
+- [[Emma Voelcker]]
 # F 
+- [[F.O Stanley]]
+- [[Flora Stanley]]
+- [[Frank (Fun guy, Trans-Allegheny)]]
+- [[Frank (likes to choke u, Shanley)]]
 # G 
+/
 # H
+- [[Heinrich Mahler]]
+- [[Helene Faust]]
+- [[Hell Hounds]]
+- [[Henry (Shanley Hotel)]]
 # I
+- [[Irene McColl]]
+- [[Isabella (evil basement entity)]]
+- [[Itzy]]
 # J
+- [[Jackie (unknown)]]
 # K
 # L
 # M
