@@ -9,7 +9,7 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[The Hat Man]]
+>- [[Hat Man]]
 >- [[Shadow Figures]]
 >- [[Steven (Shadow Figure)]]
 >———

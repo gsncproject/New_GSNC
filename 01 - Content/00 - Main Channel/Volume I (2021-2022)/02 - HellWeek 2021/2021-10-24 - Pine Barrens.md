@@ -9,11 +9,11 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[The Jersey Devil]] 
->- [[The White Stag]] 
->- [[The Golden-Haired Girl]] 
+>- [[Jersey Devil]] 
+>- [[White Stag]] 
+>- [[Golden-Haired Girl]] 
 >- [[Bill and Peggy]] 
->- Boy on Burnt Mill Road ([[The Atco Ghost]]) 
+>- Boy on Burnt Mill Road ([[Atco Ghost]]) 
 >———
 >**Important Events**:
 >- Car door, which Sam left open, shuts close when the group wasn‘t near the car 

@@ -15,7 +15,7 @@
 >- A [[Janitor (Farrar)]] 
 >- A [[Librarian (Farrar)]]
 >- A [[Principal (Farrar)]]
->- [[The Mimic]]
+>- [[Mimic]]
 >———
 >**Important Events**:
 >- The last time they were there they got „I never left“, hinting bit too hard at Sallie.

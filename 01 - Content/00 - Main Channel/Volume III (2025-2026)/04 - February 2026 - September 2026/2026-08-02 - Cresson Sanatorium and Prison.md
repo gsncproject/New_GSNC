@@ -9,8 +9,8 @@
 >[!Quick Summary]
 >**Entites/Spirits**:
 >- [[Joseph Kallinger]]
->- [[The Creeper]]
->- [[The Mimic]] 
+>- [[Creeper]]
+>- [[Mimic]] 
 >- [[Willy (unknown)]]
 >- [[Jonesie (A doctor?)]]
 >- [[Tony (unknown)]] 

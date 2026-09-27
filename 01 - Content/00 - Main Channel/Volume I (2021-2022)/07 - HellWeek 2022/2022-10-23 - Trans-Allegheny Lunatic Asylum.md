@@ -10,8 +10,8 @@
 >[!Quick Summary]
 >**Entities/Spirits**:
 >- Shadow Figure 
->- [[The Creeper]] 
->- [[The Hat Man]] 
+>- [[Creeper]] 
+>- [[Hat Man]] 
 >- [[Doppelgänger]] 
 >- [[Lily (disguise)]]
 >- [[Charlie (Bathroom guy, Trans-Allegheny)]]
@@ -21,7 +21,7 @@
 >- [[Frank (Fun guy, Trans-Allegheny)]]
 >- [[Larry (Fun guy)]]
 >- [[James Woods]]
->- [[The Mimic]]
+>- [[Mimic]]
 >———
 >**Important Events**:
 >- They catch a male disembodied voice saying „Lily“

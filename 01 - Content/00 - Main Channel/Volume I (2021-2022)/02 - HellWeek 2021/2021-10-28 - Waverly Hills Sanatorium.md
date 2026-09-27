@@ -10,7 +10,7 @@
 >[!Quick Summary]
 >**Entities/Spirits**:
 >- [[Timmy]]
->- [[The Creeper]]
+>- [[Creeper]]
 >- [[Shadow Figures]]
 >- [[Doppelgänger]]
 >- [[Poltergeists]]

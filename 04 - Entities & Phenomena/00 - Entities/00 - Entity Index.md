@@ -6,6 +6,7 @@
 - [[Anna (Lady of the evening, Shanley)]]
 - [[Anne (unknown, ZB Museum)]]
 - [[Arthur (man found in Boiler Room, Wangi Wangi)]]
+- [[Atco Ghost]]
 # B
 - [[Bathsheeba Sherman]]
 - [[Beatrice Shanley]]
@@ -17,8 +18,10 @@
 - [[Carlos (the guitarist, Cosmo)]]
 - [[Charlie (Basement, Saratoga)]]
 - [[Charlie (Bathroom guy, Trans-Allegheny)]]
+- [[Cook (Queen Mary Ship)]]
 - [[Cowboy (Cosmo)]]
 - [[Cowboy (courtyard, Magnolia)]]
+- [[Creeper]]
 # D 
 - [[David (Waverly)]]
 - [[Dean (fourteen years old, Trans-Allegheny)]]
@@ -44,8 +47,9 @@
 - [[Frank (Fun guy, Trans-Allegheny)]]
 - [[Frank (likes to choke u, Shanley)]]
 # G 
-/
+- [[Golden-Haired Girl]]
 # H
+- [[Hat Man]]
 - [[Heinrich Mahler]]
 - [[Helene Faust]]
 - [[Hell Hounds]]
@@ -55,6 +59,7 @@
 - [[Isabella (evil basement entity)]]
 - [[Itzy]]
 # J
+- [[Jackie (QM)]]
 - [[Jackie (unknown)]]
 - [[James (soldier)]]
 - [[James Campbell]]
@@ -62,6 +67,8 @@
 - [[Janitor (Farrar)]]
 - [[Jean Douglas]]
 - [[Jenny (Magnolia)]]
+- [[Jersey Devil]]
+- [[John (Queen Mary Ship)]]
 - [[Jessica (child?)]]
 - [[John (Bathroom guy)]]
 - [[John (unknown, Conjuring)]]
@@ -91,9 +98,10 @@
 - [[Mary Hillenburg]]
 - [[Mary Pittee]]
 - [[Mike (unknown)]]
+- [[Mimic]]
 - [[Mr. Deavors]]
 # N
-/
+- [[Navy Blue Man (Queen Mary Ship)]]
 # O
 - [[Oscar Washburn]] 
 # P
@@ -103,6 +111,7 @@
 - [[Paul Smith]]
 - [[Peggy the Doll]]
 - [[Peter Rasmussen]]
+- [[Pittee Girls]]
 - [[Poltergeists]]
 - [[Priest (Yorktown)]]
 - [[Principal (Farrar)]]
@@ -129,15 +138,7 @@
 - [[Strigoi]]
 - [[Susie Mahler]]
 # T 
-- [[The Atco Ghost]]
-- [[The Creeper]]
-- [[The Golden-Haired Girl]]
-- [[The Hat Man]]
-- [[The Jersey Devil]]
-- [[The Mimic]]
-- [[The Pittee Girls]]
 - [[The Sam(s) - Malina‘s Trances]]
-- [[The White Stag]]
 - [[Timmy]]
 - [[TJ (Shanley Hotel)]]
 - [[Tony (unknown)]]
@@ -148,6 +149,8 @@
 # V 
 - [[Vlad The Impaler]]
 # W
+- [[White Lady (Queen Mary Ship)]]
+- [[White Stag]]
 - [[William (Homeless guy)]]
 - [[William Faust]]
 - [[Willy (unknown)]]
