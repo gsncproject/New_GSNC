@@ -12,6 +12,12 @@
 - [[2022-04-16 - The Stanley Hotel (Return)]]
 - [[Bellaire House]]
 - [[Sam‘s Attachment]]
+- [[Minions Theory]]
+- [[Queen Mary Tudor]] (Bloody Mary) 
+#### Puppeteer — Bloody Mary 
+(*This is a theory proposed in the eighth draft of the GSNC*)
+- There is a puppeteer, and this puppeteer is Bloody Mary 
+- We assume that Bloody Mary either controls the seven minions or plays each of them when it feels like it
 #### 2026-09-16
 The Puppeteer Theory basically covers the question of, or more the idea that Sallie, Lucy, Emily, etc. could be connected to one bigger entity rather than being completely seperate entites.
 

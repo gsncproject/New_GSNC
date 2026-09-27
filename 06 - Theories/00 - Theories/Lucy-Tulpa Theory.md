@@ -6,6 +6,7 @@
 - [[Tulpa]]
 - [[Egregore]]
 - [[Egregore Theory]]
+- [[2022-06-16 - Stanley Hotel Theory]]
 #### 2026-09-18
 I have been thinking about this for most of the time by now, because the more that we started to believe in Lucy the more it occurred. 
 

@@ -11,3 +11,6 @@
 - [ ] — [[Can an entity differentiate between its own alleged identities?]]
 - [ ] — [[Can investigators accidentally create the identity they are trying to find?]]
 - [ ] — [[What kind of evidence would convince us that two seemingly different entities are the same?]]
+- [ ] — [[Why do attachments mimic the living?]] 
+- [ ] — [[Can attachments move between hosts?]] 
+- [ ] — [[What if these attachments are all connected, and it doesn‘t have a specific starting point?]] 
