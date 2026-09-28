@@ -1,9 +1,9 @@
 #version_I #theory #gsnc 
 
-[[Eddie (smelly guy, Stanley)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
+[[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
 [[Lucy]] —> [[Tulpa]] (?)
 
-[[Eddie (smelly guy, Stanley)]] was probs in M&A‘s room 
+[[Eddie (Stanley Hotel)]] was probs in M&A‘s room 
 
 Lucy = Concert Hall and Basement / That‘s maybe why yk
 

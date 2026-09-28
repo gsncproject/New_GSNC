@@ -15,9 +15,9 @@
 >- [[Lucy]] (Minion)
 >- [[Hell Hounds]] 
 >- [[Paul (the janitor)]]
->- [[Dennis (shadow figure, Stanley)]]
->- [[Eddie (smelly guy, Stanley)]]
->- [[Jackie (unknown)]]
+>- [[Dennis (Stanley Hotel)]]
+>- [[Eddie (Stanley Hotel)]]
+>- [[Jackie (unknown, Stanley Hotel)]]
 >———
 >**Important Events**:
 >- They believe that Lucy is Sam‘s attachment rather than Sallie 

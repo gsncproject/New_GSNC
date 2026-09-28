@@ -2,10 +2,10 @@
 
 # A
 - [[Abigail the Doll (Black Swan Inn)]]
-- [[Adam (the killer, Shanley)]]
-- [[Anna (Lady of the evening, Shanley)]]
+- [[Adam (Shanley Hotel)]]
+- [[Anna (Shanley Hotel)]]
 - [[Anne (unknown, ZB Museum)]]
-- [[Arthur (man found in Boiler Room, Wangi Wangi)]]
+- [[Arthur (Wangi Wangi)]]
 - [[Atco Ghost]]
 # B
 - [[Bathsheeba Sherman]]
@@ -15,25 +15,25 @@
 - [[Bill and Peggy]]
 - [[Bobby (pers. Inv.)]]
 # C
-- [[Carlos (the guitarist, Cosmo)]]
-- [[Charlie (Basement, Saratoga)]]
-- [[Charlie (Bathroom guy, Trans-Allegheny)]]
+- [[Carlos (Cosmo Hotel)]]
+- [[Charlie (Saratoga)]]
+- [[Charlie (Trans-Allegheny)]]
 - [[Cook (Queen Mary Ship)]]
 - [[Cowboy (Cosmo)]]
-- [[Cowboy (courtyard, Magnolia)]]
+- [[Cowboy (Magnolia)]]
 - [[Creeper]]
 # D 
 - [[David (Waverly)]]
-- [[Dean (fourteen years old, Trans-Allegheny)]]
-- [[Debbie (Nurse, Yorktown)]]
-- [[Dennis (shadow figure, Stanley)]]
+- [[Dean (Trans-Allegheny)]]
+- [[Debbie (Yorktown)]]
+- [[Dennis (Stanley Hotel)]]
 - [[Dennis Hof]]
 - [[Don Juan Bandini]]
 - [[Doppelgänger]]
 - [[Dr. Novarnski]]
 - [[Dybbuk]]
 # E
-- [[Eddie (smelly guy, Stanley)]]
+- [[Eddie (Stanley Hotel)]]
 - [[Egregore]]
 - [[Elemental]]
 - [[Eliza Pittee]]
@@ -44,8 +44,8 @@
 # F 
 - [[F.O Stanley]]
 - [[Flora Stanley]]
-- [[Frank (Fun guy, Trans-Allegheny)]]
-- [[Frank (likes to choke u, Shanley)]]
+- [[Frank (Trans-Allegheny)]]
+- [[Frank (Shanley Hotel)]]
 # G 
 - [[Golden-Haired Girl]]
 # H
@@ -56,12 +56,12 @@
 - [[Henry (Shanley Hotel)]]
 # I
 - [[Irene McColl]]
-- [[Isabella (evil basement entity)]]
+- [[Isabella (Magnolia)]]
 - [[Itzy]]
 # J
 - [[Jackie (QM)]]
-- [[Jackie (unknown)]]
-- [[James (soldier)]]
+- [[Jackie (unknown, Stanley Hotel)]]
+- [[James (Conjuring)]]
 - [[James Campbell]]
 - [[James Woods]]
 - [[Janitor (Farrar)]]

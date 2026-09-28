@@ -21,6 +21,10 @@
 >- The 30min being deleted by what seems to be the entity they were talking to
 >———
 >**Patterns**:
+>- [[It‘s me]]
+>- [[Me]]
+>- [[Below]]
+>- [[Maybe]]
 
 DIE FOR YOU BY THE SEIGE???? (One of my faves btw)
 

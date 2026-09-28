@@ -9,7 +9,7 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[James (soldier)]]
+>- [[James (Conjuring)]]
 >- [[John (unknown, Conjuring)]]
 >- [[Maggie (unknown, Conjuring)]]
 >- [[Paul Smith]] 

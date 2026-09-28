@@ -19,10 +19,10 @@
 >- [[Jenny (Magnolia)]]
 >- [[William Faust]] / Bill / Will 
 >- [[Mr. Deavors]] 
->- [[Cowboy (courtyard, Magnolia)]]
+>- [[Cowboy (Magnolia)]]
 >- [[Mike (unknown)]]
 >- [[Mark (unknown)]]
->- [[Isabella (evil basement entity)]]
+>- [[Isabella (Magnolia)]]
 >- [[Itzy]] (like the spider-song)
 >- ([[Sallie]])
 >———

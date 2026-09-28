@@ -12,11 +12,11 @@
 >- [[Henry (Shanley Hotel)]]
 >- [[TJ (Shanley Hotel)]]
 >- [[Jessica (child?)]] 
->- [[Frank (likes to choke u, Shanley)]]
+>- [[Frank (Shanley Hotel)]]
 >- [[Maddie (Lady of the evening)]]
->- [[Anna (Lady of the evening, Shanley)]]
+>- [[Anna (Shanley Hotel)]]
 >- [[Rosie (three year old)]]
->- [[Adam (the killer, Shanley)]]
+>- [[Adam (Shanley Hotel)]]
 >- [[Beatrice Shanley]]
 >———
 >**Important Events**:
