@@ -18,6 +18,7 @@
 >- [[Egregore]]
 >———
 >**Important Events**:
+>- The 30min being deleted by what seems to be the entity they were talking to
 >———
 >**Patterns**:
 
