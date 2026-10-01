@@ -49,7 +49,7 @@
 - Abigail the Haunted Doll.
 - The barn is supposed to be one of the more negative spots on the property.
 - Shadow figures are often seen within the barn.
-- A German immigrant and farmer by the name of Sebastian Ripstein, but the house and the barn. After that it was taken over by a couple named Heinrich Mahler (German?) and Marie Mahler. Heinrich haunts the the dairy barn himself, including their daughter Susie (Colby says she kinda looks like Sallie; NO SHIT SHERLOCK THEY ARE THE SAME) 
+- A German immigrant and farmer by the name of Sebastian Ripstein, bought the house and the barn. After that it was taken over by a couple named Heinrich Mahler (German?) and Marie Mahler. Heinrich haunts the the dairy barn himself, including their daughter Susie (Colby says she kinda looks like Sallie; NO SHIT SHERLOCK THEY ARE THE SAME) 
 - The spirits dislike men. 
 - Heinrich is one of the more active spirits.
 
