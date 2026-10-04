@@ -14,4 +14,4 @@
 12. [[Bonnie Parker]]
 13. [[Joe (pers. Inv.)]]
 14. [[Buddy (pers. Inv.)]]
-15. 
+15. [[Gottfried Joseph Wolf (pers. Inv.)]] 
