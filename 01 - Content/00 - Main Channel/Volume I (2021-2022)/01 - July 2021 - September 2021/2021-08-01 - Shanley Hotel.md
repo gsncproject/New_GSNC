@@ -13,11 +13,11 @@
 >- [[TJ (Shanley Hotel)]]
 >- [[Jessica (child?)]] 
 >- [[Frank (Shanley Hotel)]]
->- [[Maddie (Lady of the evening)]]
+>- [[Maddie (Shanley Hotel)]]
 >- [[Anna (Shanley Hotel)]]
->- [[Rosie (three year old)]]
+>- [[Rosie (Shanley Hotel)]]
 >- [[Adam (Shanley Hotel)]]
->- [[Beatrice Shanley (Shanley Hotel)]]
+>- [[Beatrice Shanley]]
 >———
 >**Important Events**:
 >- The spirits don‘t like people digging in the ‚secret‘ basement 

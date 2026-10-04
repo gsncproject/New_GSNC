@@ -9,13 +9,13 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[Timmy]]
+>- [[Timmy (Waverly Hills)]]
 >- [[Creeper]]
 >- [[Shadow Figures]]
 >- [[Doppelgänger]]
 >- [[Poltergeists]]
->- [[William (Homeless guy)]]
->- [[Steve (Williams dog)]]
+>- [[William (Waverly Hills)]]
+>- [[Steve (Waverly Hills)]]
 >- [[Mary Hillenburg]]
 >- [[David (Waverly)]]
 >———

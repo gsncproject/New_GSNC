@@ -13,7 +13,7 @@
 >- Soldier Spirits  
 >- Children Spirits 
 >- [[Beelzebub (Conjuring)]]  
->- [[Bathsheeba Sherman (Conjuring)]]
+>- [[Bathsheeba Sherman]]
 >——— 
 >**Important Events**:
 >- During the tour Amanda sees children peeking in the hallway 

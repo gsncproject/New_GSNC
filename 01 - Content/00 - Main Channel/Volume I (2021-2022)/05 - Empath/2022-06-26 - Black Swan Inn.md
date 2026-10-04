@@ -14,7 +14,7 @@
 >- [[Park Street]] 
 >- [[Abigail the Doll (Black Swan Inn)]] 
 >- [[Shadow Figures]] 
->- [[Heinrich Mahler (Black Swan Inn)]] 
+>- [[Heinrich Mahler]] 
 >- [[Marie Mahler]] 
 >- [[Susie Mahler]] 
 >- ([[Sallie]]) 

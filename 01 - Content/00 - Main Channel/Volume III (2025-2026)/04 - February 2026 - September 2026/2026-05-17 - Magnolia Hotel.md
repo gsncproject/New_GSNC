@@ -10,20 +10,20 @@
 >[!Quick Summary]
 >**Entites/Spirits**:
 >- [[James Campbell]] 
->- [[Emma Voelcker (Magnolia)]] 
->- [[Helene Faust (Magnolia)]] 
+>- [[Emma Voelcker]] 
+>- [[Helene Faust]] 
 >- [[Sara (heartbreak c.o.d)]]
 >- [[Shadow Figures]] 
->- [[Rosebud (prosititute)]]
+>- [[Rosebud (Magnolia)]]
 >- [[John (Magnolia)]]
 >- [[Jenny (Magnolia)]]
 >- [[William Faust]] / Bill / Will 
 >- [[Mr. Deavors]] 
 >- [[Cowboy (Magnolia)]]
->- [[Mike (unknown)]]
->- [[Mark (unknown)]]
+>- [[Mike (unknown, Magnolia)]]
+>- [[Mark (unknown, Magnolia)]]
 >- [[Isabella (Magnolia)]]
->- [[Itzy]] (like the spider-song)
+>- [[Itzy (Magnolia)]] (like the spider-song)
 >- ([[Sallie]])
 >———
 >**Important Events**:

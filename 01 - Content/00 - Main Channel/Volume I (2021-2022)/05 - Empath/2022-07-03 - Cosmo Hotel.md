@@ -12,7 +12,7 @@
 >- [[Yisdora Bandini]]
 >- [[Carlos (Cosmo Hotel)]]
 >- [[Cowboy (Cosmo)]]
->- [[Unnamed girl (twelve years old)]]
+>- [[Unnamed girl (Cosmo)]]
 >- [[Julia (unknown)]]
 >———
 >**Important Events**:

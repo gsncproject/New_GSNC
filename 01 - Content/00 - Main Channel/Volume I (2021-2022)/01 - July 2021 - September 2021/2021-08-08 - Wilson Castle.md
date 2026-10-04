@@ -13,7 +13,7 @@
 >- [[John Johnson]] 
 >- [[Woman in Black (unknown who, Wilson)]]
 >- [[Seven (entity)]]
->- [[Wilson Kid]] 
+>- [[Wilson Kid (Wilson Castle)]] 
 >———
 >**Important Events**:
 >- Steve explains that there is an entity following him identifying as „Seven“

@@ -13,7 +13,7 @@ Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
 [[Sallie]] = Sallie House 
 [[Emily (Bellaire House)]]/[[Susie (Fairfield)]] = Madison 
 Sarah = Fairfield 
-[[Jackie (QM)]] = Queen Mary
+[[Jackie (Queen Mary Ship)]] = Queen Mary
 
 It just wants a friend (all of them). No one did actually exist.
 	*Calling out for [[Mommy]]* —> All of them.
@@ -21,18 +21,18 @@ It just wants a friend (all of them). No one did actually exist.
 Queen Mary = Faucet
 Stanley = Toilet 
 
-[[Lucy]] goes by the name [[Jackie (QM)]] 
+[[Lucy]] goes by the name [[Jackie (Queen Mary Ship)]] 
 [[Peter James]] 
 
 Queen Mary = Sam‘s Attachment 
 
-[[Breathe]] (EM) = [[Jackie (QM)]] gasping for air.
+[[Breathe]] (EM) = [[Jackie (Queen Mary Ship)]] gasping for air.
 
-[[Jackie (QM)]] = [[Lucy]] = Stanley/Queen 
+[[Jackie (Queen Mary Ship)]] = [[Lucy]] = Stanley/Queen 
 
 Haunted School = NO!
 
-Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson (Stanley Hotel)]] / [[Flora Stanley (Stanley Hotel)]] / [[F.O Stanley (Stanley Hotel)]]
+Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
 
 --- 
 ## Release Ritual

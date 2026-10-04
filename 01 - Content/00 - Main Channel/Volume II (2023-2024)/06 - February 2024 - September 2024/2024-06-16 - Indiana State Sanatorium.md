@@ -11,7 +11,7 @@
 >**Entities/Spirits**:
 >- [[Hat Man]]
 >- [[Shadow Figures]]
->- [[Steven (Shadow Figure)]]
+>- [[Steven (Indiana State Sanatorium)]]
 >———
 >**Important Events**:
 >- During the Estes Method Colby is outside with the Thermo and notices that one window has a complete different temperature.

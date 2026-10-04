@@ -10,7 +10,7 @@
 >[!Quick Summary]
 >**Entities/Spirits**:
 >- Demons 
->- [[Steve (KKK Leader)]]
+>- [[Steve (Goatman‘s Bridge)]]
 >- [[Oscar Washburn]] 
 >- Children Spirits 
 >- [[Egregore]] 

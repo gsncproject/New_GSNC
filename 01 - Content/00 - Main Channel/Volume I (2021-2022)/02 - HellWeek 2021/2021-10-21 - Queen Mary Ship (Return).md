@@ -14,7 +14,7 @@
 >- [[White Lady (Queen Mary Ship)]]
 >- [[Navy Blue Man (Queen Mary Ship)]]
 >- [[Shadow Figures]]
->- [[Jackie (QM)]]
+>- [[Jackie (Queen Mary Ship)]]
 >- [[Egregore]]
 >———
 >**Important Events**:

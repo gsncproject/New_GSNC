@@ -11,9 +11,9 @@
 >- [[Joseph Kallinger]]
 >- [[Creeper]]
 >- [[Mimic]] 
->- [[Willy (unknown)]]
+>- [[Willy (unknown, Cresson)]]
 >- [[Jonesie (A doctor?)]]
->- [[Tony (unknown)]] 
+>- [[Tony (unknown, Cresson)]] 
 >———
 >**Important Events**:
 >- They experience a lot of disembodied voices along the investigations 

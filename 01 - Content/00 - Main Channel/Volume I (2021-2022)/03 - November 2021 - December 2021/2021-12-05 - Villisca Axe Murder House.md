@@ -14,11 +14,11 @@
 >- [[Sarah Moore]]
 >- [[Herman Montgomery Moore]]
 >- [[Mary Kathrine Moore]] ([[Sallie]] look alike)
->- [[Arthur Boyd Moore (Villisca)]]
+>- [[Arthur Boyd Moore]]
 >- [[Paul Vernon Moore]]
 >- [[Ina May Stillinger]]
 >- [[Lena Gertrude Stillinger]] 
->- [[Frank Jones (Villisca)]]
+>- [[Frank Jones]]
 >- [[Reverend George Kelly]]
 >- [[Paul Miller]]
 >- ([[Egregore]])
