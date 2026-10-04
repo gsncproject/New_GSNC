@@ -10,8 +10,8 @@
 >[!Quick Summary]
 >**Entites/Spirits**:
 >- [[James Campbell]] 
->- [[Emma Voelcker]] 
->- [[Helene Faust]] 
+>- [[Emma Voelcker (Magnolia)]] 
+>- [[Helene Faust (Magnolia)]] 
 >- [[Sara (heartbreak c.o.d)]]
 >- [[Shadow Figures]] 
 >- [[Rosebud (prosititute)]]

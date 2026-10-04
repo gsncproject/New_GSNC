@@ -1,6 +1,6 @@
 #version_II #gsnc 
 
-[[Lucy]]/[[Emily]]/[[Sallie]] are the same (prob another girl too) 
+[[Lucy]]/[[Emily (Bellaire House)]]/[[Sallie]] are the same (prob another girl too) 
 
 They’re controlled by one Entity (Demon?)
 

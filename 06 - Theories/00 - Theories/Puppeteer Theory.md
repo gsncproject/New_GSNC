@@ -5,7 +5,7 @@
 - [[Sallie]]
 - [[Lucy]]
 - [[Sallie Lucy]]
-- [[Emily]]
+- [[Emily (Bellaire House)]]
 - [[Sallie Lucy Attachment Theory]]
 - [[2021-12-19 - Sallie House]]
 - [[Bellaire House]]

@@ -5,7 +5,7 @@
 - [[Sam Golbach]]
 - [[Sallie]]
 - [[Lucy]]
-- [[Emily]]
+- [[Emily (Bellaire House)]]
 - [[Puppeteer Theory]]
 - [[Minions Theory]]
 - [[The Sallie House]]

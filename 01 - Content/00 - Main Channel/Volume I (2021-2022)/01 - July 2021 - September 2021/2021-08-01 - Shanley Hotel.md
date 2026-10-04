@@ -17,7 +17,7 @@
 >- [[Anna (Shanley Hotel)]]
 >- [[Rosie (three year old)]]
 >- [[Adam (Shanley Hotel)]]
->- [[Beatrice Shanley]]
+>- [[Beatrice Shanley (Shanley Hotel)]]
 >———
 >**Important Events**:
 >- The spirits don‘t like people digging in the ‚secret‘ basement 

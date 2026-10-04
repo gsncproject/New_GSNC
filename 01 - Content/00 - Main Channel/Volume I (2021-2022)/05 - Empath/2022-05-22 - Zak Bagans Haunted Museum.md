@@ -10,7 +10,7 @@
 >[!Quick Summary]
 >**Entities/Spirits**:
 >- [[Peggy the Doll]] 
->- [[Dennis Hof]] 
+>- [[Dennis Hof (ZB Museum)]] 
 >- [[Anne (unknown, ZB Museum)]] 
 >- [[Shadow Figures]]
 >- [[Dybbuk]] 

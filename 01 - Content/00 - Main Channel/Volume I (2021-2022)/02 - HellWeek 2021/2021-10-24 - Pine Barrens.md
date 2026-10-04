@@ -11,9 +11,9 @@
 >**Entities/Spirits**:
 >- [[Jersey Devil]] 
 >- [[White Stag]] 
->- [[Golden-Haired Girl]] 
->- [[Bill and Peggy]] 
->- Boy on Burnt Mill Road ([[Atco Ghost]]) 
+>- [[Golden-Haired Girl (Pine Barrens)]] 
+>- [[Bill and Peggy (Pine Barrens)]] 
+>- Boy on Burnt Mill Road ([[Atco Ghost (Pine Barrens)]]) 
 >———
 >**Important Events**:
 >- Car door, which Sam left open, shuts close when the group wasn‘t near the car 

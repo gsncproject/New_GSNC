@@ -1,7 +1,7 @@
 # Sam‘s Attachment???
 **Related Notes**:
 - [[Sallie]]
-- [[Emily]]
+- [[Emily (Bellaire House)]]
 - [[Lucy]]
 - [[Sam Golbach]]
 - [[2021-12-19 - Sallie House]]
@@ -37,7 +37,7 @@ From then on in more and more videos Sallie got referenced or even mentioned out
 
 There is one thing no one talks about that happened at [[The Bellaire House]]. (Let‘s ignore the Seth thing for a minute here, won‘t we?)
 
-So, at this scene Sam asks if [[Emily]] and [[Sallie]] are the same. They get kinda distracted by a thud in the floor but the flashlight turns on as a yes. After that they don‘t talk about it anymore and move on with the investigation. But there was the confirmation that Emily and Sallie are the same.
+So, at this scene Sam asks if [[Emily (Bellaire House)]] and [[Sallie]] are the same. They get kinda distracted by a thud in the floor but the flashlight turns on as a yes. After that they don‘t talk about it anymore and move on with the investigation. But there was the confirmation that Emily and Sallie are the same.
 
 And then there is [[2022-04-16 - The Stanley Hotel (Return)]] video, where they lead with the assumption that [[Lucy]] is Sam‘s attachment. But during the [[Estes Method]] in the Music Hall it‘s clear that Lucy is a variation of it.
 

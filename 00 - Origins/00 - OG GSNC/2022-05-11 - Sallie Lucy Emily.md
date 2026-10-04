@@ -11,7 +11,7 @@ Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
 ---
 [[Lucy]]/[[Eddie (Stanley Hotel)]] = Stanley 
 [[Sallie]] = Sallie House 
-[[Emily]]/[[Susie (Fairfield)]] = Madison 
+[[Emily (Bellaire House)]]/[[Susie (Fairfield)]] = Madison 
 Sarah = Fairfield 
 [[Jackie (QM)]] = Queen Mary
 
@@ -32,7 +32,7 @@ Queen Mary = Sam‘s Attachment
 
 Haunted School = NO!
 
-Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
+Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson (Stanley Hotel)]] / [[Flora Stanley (Stanley Hotel)]] / [[F.O Stanley (Stanley Hotel)]]
 
 --- 
 ## Release Ritual

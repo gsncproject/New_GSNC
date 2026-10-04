@@ -9,9 +9,9 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[F.O Stanley]] 
->- [[Flora Stanley]] 
->- [[Elizabeth Wilson]] 
+>- [[F.O Stanley (Stanley Hotel)]] 
+>- [[Flora Stanley (Stanley Hotel)]] 
+>- [[Elizabeth Wilson (Stanley Hotel)]] 
 >- [[Lucy]] (Minion)
 >- [[Hell Hounds]] 
 >- [[Paul (the janitor)]]

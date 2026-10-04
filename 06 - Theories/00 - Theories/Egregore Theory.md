@@ -4,7 +4,7 @@
 **Related To**:
 - [[Sallie]]
 - [[Lucy]]
-- [[Emily]]
+- [[Emily (Bellaire House)]]
 - [[Puppeteer Theory]]
 - [[Egregore]]
 #### 2026-09-16

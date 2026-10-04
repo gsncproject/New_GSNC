@@ -15,7 +15,7 @@
 			- [x] - Conjuring House (2)  [completion:: 2026-07-28]
 		- [ ] - November 2021 - December 2021 
 			- [x] - Sallie House !!!!  [completion:: 2026-05-23]
-			- [ ] - Villisca Axe Murder House 
+			- [x] - Villisca Axe Murder House [completion:: 2026-10-03]
 		- [ ] - The Attachment 
 			- [ ] - Fort Henry
 			- [ ] - Casa Loma 

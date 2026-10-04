@@ -13,7 +13,7 @@
 >- Nuns (who hate Tattoos)
 >- [[Debbie (Yorktown)]]
 >- ([[Mary (Yorktown)]])
->- [[Dr. Novarnski]] 
+>- [[Dr. Novarnski (Yorktown)]] 
 >- [[Priest (Yorktown)]]
 >———
 >**Important Events**:
