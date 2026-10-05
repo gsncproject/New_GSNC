@@ -236,17 +236,16 @@ There is currently no direct communication in the Villisca notes identifying Kat
 
 Three possibilities to keep separate
 
-1. Physical resemblance only
+1. **Physical resemblance only**
 The image associated with Sallie resembles Kathrine Moore, but there is no shared identity.
 
-2. Shared identity
+2. **Shared identity**
 Kathrine and Sallie could be two names or identities associated with the same entity.
 
-3. Connection without shared identity
+3. **Connection without shared identity**
 Kathrine and Sallie could be separate entities with some kind of relationship.
 
 These possibilities should not be merged.
-
 A particularly important research question
 
 **Where did the image associated with Sallie originally come from?**
@@ -260,9 +259,7 @@ We need to establish:
 - Whether the resemblance had been noticed before the Villisca investigation.
 
 The origin of the image could help establish whether Johnny’s comparison was based on a genuine historical resemblance, an existing paranormal interpretation, or something else.
-
-Existing archive material
-
+### Existing archive material
 The following files were checked:
 - 04 - Entities & Phenomena/00 - Entities/Mary Kathrine Moore.md  
 	- Empty.
