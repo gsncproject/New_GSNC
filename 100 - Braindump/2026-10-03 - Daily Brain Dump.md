@@ -351,31 +351,26 @@ The meaning of these responses remains unresolved.
 ### Lead 2 — Paul at Farrar Elementary
 This is the most important new discovery from today’s discussion.
 
-Video: Surviving a Possession at OUR Haunted School (ft. KallMeKris & CelinaSpookyBoo)
-Channel: Sam and Colby
-Timestamp: 29:53
-Location: Auditorium
-Speaker: CelinaSpookyBoo
-Context: Celina appears to be in a trance-like state.
+**Video**: Surviving a Possession at OUR Haunted School (ft. KallMeKris & CelinaSpookyBoo)
+**Channel**: Sam and Colby
+**Timestamp**: 29:53
+**Location**: Auditorium
+**Speaker**: CelinaSpookyBoo
+**Context**: Celina appears to be in a trance-like state.
 
 The screenshot captured during today’s discussion shows the subtitles:
-
-“There’s a boy Paul maybe. He got me so bad, like really bad.”
+>“There’s a boy Paul maybe. He got me so bad, like really bad.”
 
 The on-screen caption separately displays:
-
-“PAUL?”
+>“PAUL?”
 
 This is a specific name occurrence, not simply an investigator asking a spirit box to provide a name.
-
-Why this matters
-
+### Why this matters
 Celina appears to describe a boy named Paul who hurt the person or presence she is speaking from the perspective of.
 
 The exact meaning of the statement is unknown.
 
-Questions include:
-
+### Questions include:
 - Who is the boy named Paul?
 - Is Paul supposed to be a student, a spirit or another person?
 - Who is the “me” that Paul supposedly hurt?
@@ -383,9 +378,7 @@ Questions include:
 - Is the name Paul mentioned elsewhere in the Farrar investigation?
 - Is the boy named Paul part of Farrar’s reported history?
 - Does the school have any historical record of a person named Paul?
-
-Existing Farrar archive notes
-
+### Existing Farrar archive notes
 The following files were checked:
 
 01 - Content/00 - Main Channel/Volume II (2023-2024)/07 - HellWeek 2024/2024-10-20 - Farrar Elementary School Day 1.md
@@ -393,7 +386,6 @@ The following files were checked:
 01 - Content/00 - Main Channel/Volume II (2023-2024)/07 - HellWeek 2024/2024-10-20 - Farrar Elementary School Day 2.md
 
 The existing notes mention:
-
 - A janitor.
 - A librarian.
 - A principal.
@@ -410,8 +402,7 @@ The exact Paul statement from the final possession video therefore needs to be a
 
 The screenshot from today’s conversation is the immediate source for the quoted wording and timestamp.
 
-Lead 3 — The local haunted-school story
-
+### Lead 3 — The local haunted-school story
 I also remembered a haunted place down the street from my house.
 
 According to the story I know, a janitor named Paul died of a heart attack at the school and supposedly still haunts the building.
@@ -422,8 +413,7 @@ These are personal recollections and reported local stories. They have not been 
 
 The alleged janitor Paul is a separate lead from the Farrar Paul and Paul Miller.
 
-Questions
-
+### Questions
 - What is the name of the local school?
 - Is there a documented janitor named Paul?
 - Is there a historical record of a death at the school?
@@ -435,112 +425,84 @@ Questions
 - Is the local Paul supposed to be a janitor, as remembered, or could the story have changed over time?
 
 No identity connection should be assumed.
-
-  
-
-Part VII — Comparing the three Paul references
-
+## Part VII — Comparing the three Paul references
 The name Paul now appears in three separate research contexts.
 
-|   |   |   |   |
-|---|---|---|---|
-|Name|Location/source|What is reported|Current status|
-|Paul Miller|Villisca Axe Murder House|Proposed historical murder suspect; named in Estes exchanges|Historical suspect theory; murders remain unsolved|
-|Boy named Paul|Farrar Elementary|Celina says, “There’s a boy Paul maybe. He got me so bad, like really bad.”|Directly recorded in today’s screenshot; identity unknown|
-|Janitor Paul|Local haunted school|Janitor reportedly died of a heart attack and is said to haunt the school|User recollection and unverified local story|
+|                |                           |                                                                             |                                                           |
+| -------------- | ------------------------- | --------------------------------------------------------------------------- | --------------------------------------------------------- |
+| **Name**       | **Location/source**       | **What is reported**                                                        | **Current status**                                        |
+| Paul Miller    | Villisca Axe Murder House | Proposed historical murder suspect; named in Estes exchanges                | Historical suspect theory; murders remain unsolved        |
+| Boy named Paul | Farrar Elementary         | Celina says, “There’s a boy Paul maybe. He got me so bad, like really bad.” | Directly recorded in today’s screenshot; identity unknown |
+| 		Janitor Paul | Local haunted school      | Janitor reportedly died of a heart attack and is said to haunt the school   | User recollection and unverified local story              |
 
-Possible interpretations
-
+### Possible interpretations
 There are several ways to approach the overlap.
 
-A. Coincidental shared name
-
+**A. Coincidental shared name**
 All three references concern unrelated people or entities.
 
-B. A recurring name with separate origins
-
+**B. A recurring name with separate origins**
 The name Paul appears in different paranormal contexts, but each occurrence has its own explanation.
 
-C. A shared identity or connection
-
+**C. A shared identity or connection**
 The references could potentially concern the same person or entity.
 
 There is currently no direct evidence establishing C.
 
 The most important next step is to investigate each occurrence independently before attempting to connect them.
-
-Why Farrar is especially important
-
+### Why Farrar is especially important
 The Farrar statement is a useful bridge between the other two leads because it is a specific reference to a boy named Paul, rather than a historical suspect or a reported adult janitor.
 
 However, the differences in the descriptions matter:
-
 - Villisca: Paul Miller, a historical adult suspect.
 - Farrar: a boy called Paul who supposedly hurt someone.
 - Local school: a janitor called Paul who reportedly died of a heart attack.
 
 We must not erase those differences just because the name is shared.
-
-  
-
-Part VIII — Current research questions and follow-ups
-
-Poveglia and the screams
-
-- ☐ Rewatch Poveglia and establish the exact scream or communication that could be relevant.
-- ☐ Check Pendle Hill for the first post-Poveglia scream occurrence.
-- ☐ Check Paris Catacombs.
-- ☐ Check Smurls House.
-- ☐ Check FaZe Rug’s House.
-- ☐ Compare the sound and context of each occurrence.
-- ☐ Investigate the historical doctor story and separate documented history from folklore.
-- ☐ Establish whether anyone identifies the screaming presence as a doctor.
-- ☐ Compare the new scream investigation with the existing Poveglia-Attachment Theory.
-
-Villisca
-
-- ☐ Finish reviewing the transcript for every Paul reference.
-- ☐ Revisit the full Estes exchanges and their surrounding questions.
-- ☐ Check the exact discussion of Frank Jones, Reverend George Kelly and Paul Miller.
-- ☐ Investigate whether the communication could distinguish the speaker from Paul.
-- ☐ Preserve the Ross Moore key discovery as historical context, not an active suspect theory.
-
-Kathrine Moore and Sallie
-
-- ☐ Find the original image associated with Sallie.
-- ☐ Establish where and when the image first appeared.
-- ☐ Check whether Johnny’s comparison was based on a specific image.
-- ☐ Investigate the reported 508 Second Street connection.
-- ☐ Find the original context of Tony Pickman’s reported statement.
-- ☐ Investigate whether Kathrine Moore has ever been identified in a paranormal communication.
-- ☐ Compare this lead with the existing Sallie/Lucy/Emily identity theories.
-- ☐ Do not assume that Kathrine, Sallie and Sam’s alleged attachment are the same.
-
-Paul
-
-- ☐ Transcribe the full section surrounding Celina’s 29:53 statement.
-- ☐ Check whether Paul is mentioned elsewhere in the Farrar finale.
-- ☐ Review the missing Farrar Day 3–7 notes and source videos.
-- ☐ Investigate the reported history of the Farrar janitor, librarian and principal.
-- ☐ Identify the local haunted school and investigate the reported janitor Paul.
-- ☐ Look for reliable historical information about the local Paul’s alleged death.
-- ☐ Revisit the Villisca Estes session and all references to Paul Miller.
-- ☐ Compare the three references only after each has been independently documented.
-
-  
-
-DO NOT FORGET
-
+## Part VIII — Current research questions and follow-ups
+#### Poveglia and the screams
+- [ ] Rewatch Poveglia and establish the exact scream or communication that could be relevant.
+- [ ] Check Pendle Hill for the first post-Poveglia scream occurrence.
+- [ ] Check Paris Catacombs.
+- [ ] Check Smurls House.
+- [ ] Check FaZe Rug’s House.
+- [ ] Compare the sound and context of each occurrence.
+- [ ] Investigate the historical doctor story and separate documented history from folklore.
+- [ ] Establish whether anyone identifies the screaming presence as a doctor.
+- [ ] Compare the new scream investigation with the existing Poveglia-Attachment Theory.
+#### Villisca
+- [ ] Finish reviewing the transcript for every Paul reference.
+- [ ] Revisit the full Estes exchanges and their surrounding questions.
+- [ ] Check the exact discussion of Frank Jones, Reverend George Kelly and Paul Miller.
+- [ ] Investigate whether the communication could distinguish the speaker from Paul.
+- [ ] Preserve the Ross Moore key discovery as historical context, not an active suspect theory.
+#### Kathrine Moore and Sallie
+- [ ] Find the original image associated with Sallie.
+- [ ] Establish where and when the image first appeared.
+- [ ] Check whether Johnny’s comparison was based on a specific image.
+- [ ] Investigate the reported 508 Second Street connection.
+- [ ] Find the original context of Tony Pickman’s reported statement.
+- [ ] Investigate whether Kathrine Moore has ever been identified in a paranormal communication.
+- [ ] Compare this lead with the existing Sallie/Lucy/Emily identity theories.
+- [ ] Do not assume that Kathrine, Sallie and Sam’s alleged attachment are the same.
+#### Paul
+- [ ] Transcribe the full section surrounding Celina’s 29:53 statement.
+- [ ] Check whether Paul is mentioned elsewhere in the Farrar finale.
+- [ ] Review the missing Farrar Day 3–7 notes and source videos.
+- [ ] Investigate the reported history of the Farrar janitor, librarian and principal.
+- [ ] Identify the local haunted school and investigate the reported janitor Paul.
+- [ ] Look for reliable historical information about the local Paul’s alleged death.
+- [ ] Revisit the Villisca Estes session and all references to Paul Miller.
+- [ ] Compare the three references only after each has been independently documented.
+#### DO NOT FORGET
 Today’s Villisca transcription introduced several new leads, but the most important new development may be the name Paul.
 
 The name appears in three very different contexts:
-
 - Paul Miller at Villisca.
 - Celina’s statement about a boy named Paul at Farrar Elementary.
 - The reported janitor Paul at the local haunted school.
 
 The Farrar occurrence is especially specific:
-
 29:53 — Auditorium — Celina:
 
 “There’s a boy Paul maybe. He got me so bad, like really bad.”
