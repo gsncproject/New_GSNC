@@ -1,7 +1,5 @@
-2026-10-03 — Daily Braindump
-
-Today’s topics
-
+# 2026-10-03 — Daily Braindump
+## Today’s topics
 - The possible origin of the recurring screams after the Poveglia Island investigation.
 - The suspected Poveglia doctor attachment theory.
 - The sequence of Sam and Colby’s five investigations following Poveglia.
@@ -13,13 +11,8 @@ Today’s topics
 - The recurring name Paul across Villisca, Farrar Elementary and a local haunted-school story.
 - Celina’s trance-session statement about a boy named Paul at Farrar Elementary.
 - New questions about whether the Paul references could be connected.
-
-  
-
-Part I — Poveglia and the recurring screams
-
-The original observation
-
+## Part I — Poveglia and the recurring screams
+### The original observation
 I have been noticing a pattern involving recurring screams in Sam and Colby’s investigations.
 
 My current suspicion is that the pattern may have started with the Poveglia Island investigation during HellWeek 2025.
@@ -35,22 +28,18 @@ Important qualification: The story about the doctor’s alleged behaviour and de
 The specific theory currently being considered is that the doctor could be connected to the recurring screams heard in later investigations.
 
 This remains a hypothesis.
-
-The five-video sequence
-
+### The five-video sequence 
 The correct Sam and Colby investigation sequence identified during today’s discussion is:
-
 1. Poveglia Island
 2. Pendle Hill
 3. Paris Catacombs
 4. Smurls House
 5. FaZe Rug’s House
-
 The sequence matters because an earlier discussion incorrectly treated FaZe Rug’s House as the first investigation after Poveglia.
 
 It is not. Pendle Hill comes immediately after Poveglia.
 
-Previously discussed publication dates were:
+**Previously discussed publication dates were:**
 
 |   |   |
 |---|---|
@@ -62,17 +51,13 @@ Previously discussed publication dates were:
 |FaZe Rug’s House|November 23, 2025|
 
 These dates should be checked against the original videos before being treated as final archive metadata.
-
-The scream pattern
-
+### The scream pattern
 My recollection is that the creepy screams keep appearing after Poveglia, and I specifically remember them being relevant at FaZe Rug’s House.
 
 However, we have not yet established the first post-Poveglia occurrence.
 
 The sequence of five investigations must not be confused with the sequence of scream occurrences.
-
-Questions to investigate
-
+### Questions to investigate
 - What is the earliest recorded scream after Poveglia?
 - Does the scream occur in Pendle Hill?
 - Does it occur in the Paris Catacombs?
@@ -92,45 +77,27 @@ Existing vault material
 
 The following files were checked:
 
-- 01 - Content/00 - Main Channel/Volume III (2025-2026)/02 - HellWeek 2025/Poveglia Island.md  
-      
-    
-
-- Only 23 bytes.
-- Contains #HellWeek25 #to_expand.
-- No substantive investigation notes yet.
+- 01 - Content/00 - Main Channel/Volume III (2025-2026)/02 - HellWeek 2025/Poveglia Island.md 
+	- Only 23 bytes..
+	- No substantive investigation notes yet.
 
 - 06 - Theories/00 - Theories/Poveglia-Attachment Theory.md  
-      
-    
-
-- 294 bytes.
-- Dated November 24, 2025.
-- Records an existing theory that Sam and/or Colby may have acquired an attachment at Poveglia.
-- Mentions constant screaming through a spirit box and the possibility that the source is a doctor from the island who followed them.
+	- 294 bytes.
+	- Dated November 24, 2025.
+	- Records an existing theory that Sam and/or Colby may have acquired an attachment at Poveglia.
+	- Mentions constant screaming through a spirit box and the possibility that the source is a doctor from the island who followed them.
 
 - 04 - Entities & Phenomena/00 - Entities/Jonesie (A doctor?).md  
-      
-    
-
-- Empty.
+	- Empty.
 
 - 99 - ARCHIVE/00 - UNSORTED/Screams.md  
-      
-    
-
-- Empty.
+	- Empty.
 
 The November 24 date is the date recorded on the theory note. It does not establish when the theory first originated.
 
 The existing Poveglia attachment theory and the new scream-pattern investigation should be compared rather than automatically treated as identical.
-
-  
-
-Part II — Villisca Axe Murder House transcription
-
-Transcription session
-
+## Part II — Villisca Axe Murder House transcription
+### Transcription session
 October 3, 2026
 
 - Start: 11:11 AM
@@ -142,11 +109,9 @@ I completed the Villisca Axe Murder House video transcription.
 This was the next unchecked investigation after Sallie House in the existing progress tracker.
 
 The relevant tracker is:
-
-01 - Content/00 - Main Channel/02 - Progress.md
+>01 - Content/00 - Main Channel/02 - Progress.md
 
 The tracker previously showed:
-
 - Sallie House — completed May 23, 2026.
 - Villisca Axe Murder House — unchecked.
 
@@ -157,31 +122,22 @@ No repository changes have been made.
 Original investigation source
 
 Video: Our Haunted Night at Villisca Axe Murder House (SOLVED)
-
 Published: December 5, 2021
-
 YouTube: https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46
-
 Featuring: Sam Golbach, Colby Brock, Nate Hardy and Seth Borden.
 
 Existing archive file:
-
-01 - Content/00 - Main Channel/Volume I (2021-2022)/03 - November 2021 - December 2021/2021-12-05 - Villisca Axe Murder House.md
+>01 - Content/00 - Main Channel/Volume I (2021-2022)/03 - November 2021 - December 2021/2021-12-05 - Villisca Axe Murder House.md
 
 The file is 13,187 bytes and contains the existing investigation notes and recorded Estes responses.
-
-  
-
-Part III — The Villisca murder theories
-
+## Part III — The Villisca murder theories
 The Paul Miller question
 
 One of my main reactions after finishing the video was that I am not convinced Paul Miller was necessarily the only person involved in the murders.
 
 The investigation discusses several possible suspects and interpretations.
 
-The existing notes include:
-
+**The existing notes include:**
 - Frank Jones
 - Reverend George Kelly
 - Paul Miller
@@ -189,53 +145,41 @@ The existing notes include:
 The Paul Miller theory is associated with the travelling serial killer hypothesis from The Man from the Train.
 
 My interpretation of the Estes communication is that some responses could potentially suggest more than one person or a distinction between the communicating speaker and Paul Miller.
-
-Relevant recorded exchanges
+### Relevant recorded exchanges
 
 During the guest bedroom Estes session, Colby asks whether Paul Miller was the murderer.
 
 The recorded response is:
-
-“Impossible.”
+>“Impossible.”
 
 Later, in the parents’ bedroom session:
 
 Sam asks:
-
-“Was it Paul? Do you know Paul?”
+>“Was it Paul? Do you know Paul?”
 
 Recorded response:
-
-“Yes”
+>“Yes”
 
 Colby asks:
-
-“Do you know Paul?”
+>“Do you know Paul?”
 
 Recorded response:
-
-“That”
+>“That”
 
 Sam later asks:
-
-“Is that what Paul Miller said here?”
+>“Is that what Paul Miller said here?”
 
 Recorded response:
-
-“Yes”
+>“Yes”
 
 Seth asks:
-
-“Did you make Paul do it?”
+>“Did you make Paul do it?”
 
 Recorded responses include:
-
-“If I was him”
+>“If I was him”
 
 Followed by further “Yes” responses.
-
-My interpretation
-
+### My interpretation
 I do not think these exchanges should automatically be treated as confirmation that Paul Miller committed the murders.
 
 The responses are fragmented, and several questions are leading or contain the name Paul before the response is received.
@@ -246,8 +190,7 @@ Another possibility is that the responses were being interpreted through the que
 
 The earlier “Impossible” response is also important because it appears to conflict with the later interpretation that Paul Miller was responsible.
 
-Open questions
-
+### Open questions
 - Was Paul Miller actually being identified as the murderer?
 - Could the speaker have been referring to another person?
 - Does “If I was him” distinguish the speaker from Paul?
@@ -256,45 +199,33 @@ Open questions
 - Does the video provide any context that the written transcript currently misses?
 
 The historical murder case remains unsolved. Paranormal communication responses must not be treated as established historical evidence of who committed the murders.
-
-  
-
-Part IV — The Kathrine Moore and Sallie connection
-
-Johnny’s statement
-
+## Part IV — The Kathrine Moore and Sallie connection
+### Johnny’s statement
 One of the strangest details from the Villisca video is something Johnny, the guide, reportedly says about Mary Kathrine Moore.
 
 According to the existing Villisca notes, Johnny compares the image associated with Sallie to Kathrine Moore, one of the children murdered at Villisca.
 
 The wording recorded in the notes is:
-
-“A fucking spitting image.”
+>“A fucking spitting image.”
 
 This is an unusually specific comparison.
 
 I found it particularly strange that the guide would draw such a direct resemblance between an image associated with Sallie and one of the Villisca victims.
-
-The possible connection between Villisca and Sallie House
-
+### The possible connection between Villisca and Sallie House
 Johnny also reportedly mentions that the Villisca and Sallie houses are both at 508 Second Street.
 
 He additionally refers to Tony Pickman visiting Villisca and saying:
-
-“Whatever’s in here is at my place.”
+>“Whatever’s in here is at my place.”
 
 These are statements attributed to Johnny during the investigation. They are not independently established evidence that the two locations share an entity.
 
 Nevertheless, they are relevant to the possible Villisca–Sallie connection.
-
-The Kathrine = Sallie hypothesis
-
+### The Kathrine = Sallie hypothesis
 A possibility I considered today is that Mary Kathrine Moore and Sallie could be connected.
 
 The question becomes even more interesting when considered alongside the existing theory that Sallie may be attached to Sam.
 
 Could the possible chain be:
-
 - Mary Kathrine Moore is somehow connected to Sallie.
 - Sallie is the same entity as, or connected to, something associated with Sam.
 - The identity of Sam’s alleged attachment could therefore have a connection to Kathrine Moore.
@@ -306,25 +237,21 @@ There is currently no direct communication in the Villisca notes identifying Kat
 Three possibilities to keep separate
 
 1. Physical resemblance only
-
 The image associated with Sallie resembles Kathrine Moore, but there is no shared identity.
 
 2. Shared identity
-
 Kathrine and Sallie could be two names or identities associated with the same entity.
 
 3. Connection without shared identity
-
 Kathrine and Sallie could be separate entities with some kind of relationship.
 
 These possibilities should not be merged.
 
 A particularly important research question
 
-Where did the image associated with Sallie originally come from?
+**Where did the image associated with Sallie originally come from?**
 
 We need to establish:
-
 - Its original source.
 - When it was created or first circulated.
 - Whether it was intended to represent Sallie.
@@ -337,54 +264,30 @@ The origin of the image could help establish whether Johnny’s comparison was b
 Existing archive material
 
 The following files were checked:
-
 - 04 - Entities & Phenomena/00 - Entities/Mary Kathrine Moore.md  
-      
-    
-
-- Empty.
+	- Empty.
 
 - 04 - Entities & Phenomena/00 - Entities/Paul Miller.md  
-      
-    
-
-- Empty.
+	- Empty.
 
 - 04 - Entities & Phenomena/00 - Entities/Reverend George Kelly.md  
-      
-    
-
-- Empty.
+	- Empty.
 
 - 04 - Entities & Phenomena/00 - Entities/Sallie Lucy.md  
-      
-    
-
-- Contains the existing theory that Sallie and Lucy may be one entity using multiple names.
-- Also records proposed connections to multiple alleged hosts, including Sam, Malina and myself.
+	- Contains the existing theory that Sallie and Lucy may be one entity using multiple names.
+	- Also records proposed connections to multiple alleged hosts, including Sam, Malina and myself.
 
 - 06 - Theories/00 - Theories/Sallie Lucy Attachment Theory.md  
-      
-    
-
-- Contains the existing Sallie/Lucy/Emily identity theory.
-- Includes references to the Bellaire House, Stanley Hotel, Alice and the phrase “It’s me”.
-- Explicitly preserves uncertainty.
+	- Contains the existing Sallie/Lucy/Emily identity theory.
+	- Includes references to the Bellaire House, Stanley Hotel, Alice and the phrase “It’s me”.
+	- Explicitly preserves uncertainty.
 
 - 06 - Theories/00 - Theories/Sallie possessing Sam?.md  
-      
-    
-
-- Contains fan speculation that Sam has not acted like himself since the Sallie House investigation.
+	- Contains fan speculation that Sam has not acted like himself since the Sallie House investigation.
 
 The Kathrine connection is a new lead that should be added to the wider investigation only after the original comparison and image source are documented.
-
-  
-
-Part V — The Ross Moore theory
-
-The original thought
-
+## Part V — The Ross Moore theory
+### The original thought
 During the Villisca discussion, I remembered a detail involving Josiah Moore’s brother.
 
 I remembered either Sam or Nate saying that the brother was the only person with a key to the house.
@@ -392,13 +295,10 @@ I remembered either Sam or Nate saying that the brother was the only person with
 I also remembered that a neighbour came to check whether everything was okay, but the door was locked.
 
 This initially raised the possibility that the brother’s access to the house might be relevant.
-
-Identifying the brother
-
+### Identifying the brother
 The brother was Ross Moore.
 
 External research into the historical account found that:
-
 - Neighbour Mary Peckham noticed that the family had not completed its usual morning chores.
 - She went to the house and received no answer.
 - She contacted Ross Moore.
@@ -407,14 +307,13 @@ External research into the historical account found that:
 - He told Mary Peckham to contact the appropriate authorities.
 
 Source: PBS, The Villisca Axe Murder House, Part 1.
-
 https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/
 
 The PBS account also describes investigators’ belief that the murderer entered through an unlocked front door.
 
-Important distinction: Ross having a spare key does not establish that he was the only person with a key. The fact that the house was locked when Mary Peckham tried to enter also does not establish that it was locked when the murderer entered.
+**Important distinction**: Ross having a spare key does not establish that he was the only person with a key. The fact that the house was locked when Mary Peckham tried to enter also does not establish that it was locked when the murderer entered.
 
-Decision: set aside the Ross theory
+>**Decision: set aside the Ross theory**
 
 After examining the detail more carefully, I no longer think the Ross theory makes sense as a useful suspect theory.
 
@@ -423,11 +322,7 @@ The available information establishes that Ross had access through a spare key. 
 The key detail should remain part of the historical timeline, but the theory that Ross was involved is being set aside.
 
 This is a correction to an initial interpretation, not a deletion of the original question.
-
-  
-
-Part VI — The name Paul: a new cross-investigation lead
-
+## Part VI — The name Paul: a new cross-investigation lead
 Why the name caught my attention
 
 After finishing Villisca, I found myself feeling strangely unsettled by the name Paul.
@@ -437,7 +332,6 @@ At first I couldn’t explain why.
 Then I remembered two other places where the name appears.
 
 This created a possible three-way connection:
-
 1. Paul Miller at Villisca.
 2. A boy named Paul mentioned by Celina during the Farrar Elementary investigation.
 3. A reportedly deceased janitor named Paul associated with a haunted school near my home.
@@ -447,36 +341,24 @@ This is a new research lead.
 The same name appearing in three places does not establish that the references concern the same person or entity.
 
 However, the specific contexts are worth comparing.
-
-Lead 1 — Paul Miller at Villisca
-
+### Lead 1 — Paul Miller at Villisca
 The Villisca investigation contains several references to Paul Miller.
-
-He is discussed as a possible travelling serial killer connected to the Man from the Train theory.
-
-The Estes sessions include several exchanges involving the name Paul, including:
-
+	He is discussed as a possible travelling serial killer connected to the Man from the Train theory.
+	The Estes sessions include several exchanges involving the name Paul, including:
 - “Impossible.”
 - “Do you know Paul?” — “Yes”
 - “Is that what Paul Miller said here?” — “Yes”
 - “Did you make Paul do it?” — “If I was him”
 
 The meaning of these responses remains unresolved.
-
-Lead 2 — Paul at Farrar Elementary
-
+### Lead 2 — Paul at Farrar Elementary
 This is the most important new discovery from today’s discussion.
 
 Video: Surviving a Possession at OUR Haunted School (ft. KallMeKris & CelinaSpookyBoo)
-
 Channel: Sam and Colby
-
 Timestamp: 29:53
-
 Location: Auditorium
-
 Speaker: CelinaSpookyBoo
-
 Context: Celina appears to be in a trance-like state.
 
 The screenshot captured during today’s discussion shows the subtitles:
