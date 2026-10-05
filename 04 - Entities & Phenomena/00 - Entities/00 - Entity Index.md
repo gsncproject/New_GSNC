@@ -39,11 +39,42 @@
 - [[Eliza Pittee]]
 - [[Elizabeth Wilson]]
 - [[Ellie (St. Augustine Lighthouse)]]
+- [[Emily (Bellaire House)]]
+- [[Emma Voelcker]]
 # F
+- [[F.O Stanley]]
+- [[Flora Stanley]]
+- [[Frank (Shanley Hotel)]]
+- [[Frank (Trans-Allegheny)]]
+- [[Frank Jones]]
 # G
+- [[Golden-Haired Girl (Pine Barrens)]]
 # H
+- [[Hat Man]]
+- [[Heinrich Mahler]]
+- [[Helene Faust]]
+- [[Hell Hounds]]
+- [[Henry (Shanley Hotel)]]
+- [[Herman Montgomery Moore]]
 # I
+- [[Ina May Stillinger]]
+- [[Irene McColl]]
+- [[Isabella (Magnolia)]]
+- [[Itzy (Magnolia)]]
 # J
+- [[Jackie (Queen Mary Ship)]]
+- [[Jackie (unknown, Stanley Hotel)]]
+- [[James (Conjuring)]]
+- [[James Campbell]]
+- [[James Woods]]
+- [[Janitor (Farrar)]]
+- [[Jean Douglas]]
+- [[Jenny (Magnolia)]]
+- [[Jersey Devil]]
+- [[Jessica (child?)]]
+- [[John (Bathroom guy)]]
+- [[John (Magnolia)]]
+- [[John (unknown, Conjuring)]]
 # K
 # L
 # M 
