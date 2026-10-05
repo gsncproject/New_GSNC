@@ -1,7 +1,6 @@
 # Braindump Rules
 ## Purpose
 The Braindump is a chronological memory archive of conversations and collaborative work related to GSNC.
-
 Its purpose is to preserve important discussions, discoveries, ideas, decisions, questions, and research leads so that neither the user nor ChatGPT loses relevant context between conversations.
 
 The Braindump documents the development of our thinking. It does not replace the investigation archive.
