@@ -139,10 +139,35 @@
 - [[Sara (heartbreak c.o.d)]]
 - [[Sara Johnson]]
 - [[Sarah Moore]]
+- [[Seven (entity)]]
+- [[Shadow Figures]]
+- [[Stacie (Yorktown)]]
+- [[Steve (Goatman‘s Bridge)]]
+- [[Steve (Waverly Hills)]]
+- [[Steven (Indiana State Sanatorium)]]
+- [[Steven Jet]]
+- [[Strigoi]]
+- [[Susie Mahler]]
 # T
+- [[The Sam(s) - Malina‘s Trances]]
+- [[Timmy (Waverly Hills)]]
+- [[TJ (Shanley Hotel)]]
+- [[Tony (unknown, Cresson)]]
+- [[Tricksters]]
+- [[Tulpa]]
 # U
+- [[Unnamed girl (Cosmo)]]
 # V 
+- [[Vlad The Impaler]]
 # W
+- [[White Lady (Queen Mary Ship)]]
+- [[White Stag]]
+- [[William (Waverly Hills)]]
+- [[William Faust]]
+- [[Willy (unknown, Cresson)]]
+- [[Wilson Kid (Wilson Castle)]]
+- [[Woman in Black (unknown who, Wilson)]]
 # X
 # Y
+- [[Yisdora Bandini]]
 # Z
