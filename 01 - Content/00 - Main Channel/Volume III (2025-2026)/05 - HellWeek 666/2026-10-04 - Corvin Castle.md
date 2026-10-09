@@ -9,10 +9,28 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
+>- [[Vlad The Impaler]]
+>- dark [[Poltergeists|Poltergeist]]
+>- [[John Hunyadi]]
+>- [[Elizabeth Hunyadi]]
+>- [[Strigoi]]
+>- [[Mattias (Corvin Castle)]]
+>- 3 Turkish Prisoners 
+>- [[Shadow Figures]]
 >———
 >**Important Events**:
+>- Dan and Phil‘s investigation in the torture chamber…
+>- Colby, Dan and Vlad‘s investigation in Capistrano Tower 
+>- The Estes Method 
 >———
 >**Patterns**:
+>- [[Maybe]]
+>- [[Me]]
+>- [[Move]]
+>- [[Friend]]
+>- [[Four]] / [[Three]]
+>- [[Free]]
+
 
 FIRST VIDEO OF HELLWEEK LETSSSS GOOOOOOOOOOOOOOOO (gunna be so fucking stressed AHHH)
 
@@ -119,7 +137,11 @@ Sam brings out the Onvoy 2, it can answer yes/no/maybe
 *EMF spikes*
 **Sam: Is there a specific reason why you don‘t wanna answer these questions that we‘re asking** - „No“
 „Yes“ - *As Sam says they‘re gonna leave after one last question*
-
+**Sam: If we continue talking tonight are we in danger?** - ???
+**Phil: Are we unsafe?** - ???
+**Phil: Are they (Dan and Colby) safe?** - „Yes“
+**Sam: If you can tell us they‘re safe, why can‘t you tell us if we‘re safe? / Phil: Are we safe?** - “Yes“
+**Sam: Will you follow us around?** - „No
 #### Dan and Colby (and Vlad) (Capistrano Tower):
 They‘re in the what is called „The Diet Hall“
 - Guards report seeing shadow figures in the galleries
@@ -136,3 +158,104 @@ They‘re in the what is called „The Diet Hall“
 „No“
 *Colby asks whoever to give them an obvious sign that they‘re there* - ???
 **Colby: Do you like us being-** - „No“
+**Colby: One more thing you want to say to us before we leave?** - „In the wall“
+*They go closer to the wall where the monk was walled in*
+**Colby: Is it easier to talk to us over here?** - „Move“
+**Dan: Are you trapped here?** - *sounded like „Nineteen“*
+**Colby: This is your last chance-** - „No“
+
+Sam and Phil want to try and scare Colby, Dan and Vlad.
+	They succeed.
+### 51:43min - The Prisoners in the Well
+Where the fuck did they get 2€ CUZ THAT AINT ROMANIAN LEU
+	Well, there those four 2€ go down the drain… THATS EIGHT EUROS I COULDVE BOUGHT SEVEN CANS OF BOOSTER AHHHH
+
+**Equipment used**: DR-60
+#### First attempt (EVP):
+**Colby: Do you accept or offering?** - (no answer)
+**Sam: Is there something here that can be considered a poltergeist? If so, can you say yes?** - *growl*
+**Dan: Are youre spirits still trapped in the well?** - (no answer)
+**Phil: Are we safe here?** - (no answer)
+#### Second attempt (EVP):
+**Colby: Are we in danger tonight?** - (no answer)
+**Sam: If we‘re directly talking to this poltergeist and that is you, can you scream again?** - (no answer)
+**Dan: Was it you that attacked the first group that came here?** - (no answer)
+**Phil: Do you want us to leave?** - (no answer)
+### 58:53min - The Secret Challenge 
+*SEVEN MINUTES IN HELLLLLLLLL* HELL YAHHHHHH
+
+Dan and Phil have to go to the torture chamber… in night vision.
+Sam and Colby gotta go to a spot thats been sealed of for the public… with just candle light.
+#### Dan and Phil:
+**Equipment used**: Music Box, Dead Bell (AHHHH I SWEAR THE BELL IS MY FAVEEE)
+
+*Right off the start the Dead Bell starts chiming*
+*They‘re just exploring and the bell chimes again*
+*Just as Dan says „Stockades“ the Dead Bell chimes again*
+**Dan: Is someone who was tortured deep in the dungeon down there?** - *Dead Bell chimes again*
+*The night vision cam just flashed*
+*Dead Bell chimes again*
+*The cam keeps flashing? Like blacking out for just a second before being normal again?*
+*Dead Bell chimes again*
+*Dan says something about someone getting their limps teared apart and the bell chimes again*
+*As they go further down the stairs into the actual dungeon the cam keeps acting up and the bell chimes again*
+**Dan: Is somebody down here in the basement?** - ???
+**Dan: Are you in the room with us right now?** - ???
+*As they fight whether to leave Sam and Colby‘s equipment down there or not the bell chimes again. Twice.*
+*Bell chimes again*
+*Phil is terrified of the Dead Bell*
+*They‘re going back up with Phil carrying the bell*
+**Phil (still holding the bell): Do you want us to leave?** - ???
+**Dan: Have we angered you by coming here?** - ???
+**Phil: Do you want us to stay?** - ???
+**Phil: Are we in danger?** - *bell chimes*
+#### Sam and Colby: 
+*Their candle flame is tweaking according to Colby*
+*Okay apparently the place is „charged“? because of the rocks and minerals (e.g Stone Tape Theory)*
+*Sam thinks there is a spider crawling on his head*
+*Colby starts climbing*
+**Colby: If there‘s any dark poltergeist or a Strigoi or maybe one of the prisoners that we were talking to earlier, can you please give us some sort of obvious sign right now by maybe knocking on one of the walls or you can blow out this candle that I have right here?** - ???
+### 1:12:04min - The Final Investigation (The Chapel)
+There up on the wall there is something containing *666* engraved in its stone, AHHHHHHHHHHH
+#### Estes Method (Phil)
+*Colby hears a rumble*
+*They all start hearing noises*
+**Sam: Is there any spirits here with us that would like to communicate?** - „Go“
+„Amica“ - *is Romanian for „Female friend“*
+**Sam: Do you want us to go for any specific reason?** - „Half“
+**Colby: Who are we speaking to?** - ???
+**Dan: Are you the dark poltergeist?** - *dafug does Phil swallow so loudly?*
+„No“
+**Colby: Are you part of the family who lived in this castle at one point? Hunyadi Family?** - „Hurt“
+**Colby: Are you a prisoner here?** - „Don‘t“
+**Colby: Were you hurt here in this castle or tortured?** - „Slow“
+„Shut a person“
+**Sam: Do you like that we‘re here trying to communicate with you?** - „Home“
+**Sam: Would you like us to go home?** - „Safe“
+**Sam: Do you feel safe here?** - „Home“
+*Colby said maybe it means their safe at home*
+**Sam: Are you tellng us to go home because that‘s where it‘s safe?**
+„Safe“
+„Summer“
+**Sam: Is there something we should be afraid of?** - „Go“
+„Late“
+„Stop“
+„Hole“
+„Hole“
+**Colby: Are we in danger if we stay?** - „Yes“
+„Four minutes“
+„Hi“
+**Sam: What‘s gonna happen to us in four minutes?** - „Down“
+„Pain“
+„Present“
+**Sam: Is there any last message you have for us before we leave?** - „Dizzy“
+„Home“
+„Free“
+**Dan: You wanna be free?** - „Three“
+„Down“
+**Colby: Are you the turkish prisoners that dug out the well? Or one of them?** - „Last“
+**Sam: Is there one last message about Dracula‘s Castle? Do you think it‘s a peaceful place here?** - „Stop“
+**Sam: Are you gonna cause pain if we don‘t leave right now?** - „Hell“
+**Colby: If there‘s anything you wanna tell us,  your last chance right now?** - „Are you…“
+„Here“
+„Go“
