@@ -122,7 +122,7 @@
 			- [ ] - Appalacha Mountains
 			- [x] - Cresson Sanatorium and Prison  [completion:: 2026-08-08]
 		- [ ] - HellWeek 2026
-			- [ ] - Corvin Castle 
+			- [x] - Corvin Castle [completion:: 2026-10-09]
 			- [ ] - Abandoned Asylum X
 			- [ ] - Devil‘s Prison 
 			- [ ] - America‘s Catacombs 
