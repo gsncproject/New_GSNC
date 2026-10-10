@@ -31,6 +31,8 @@
 >**Patterns**:
 >- [[It‘s me]]
 >- [[Maybe]]
+>- [[Leave]]
+>- [[Home]]
 
 - For 130 the Trans-Allegheny Lunatic Asylum treated the mentally ill 
 - They also performed lobotomies

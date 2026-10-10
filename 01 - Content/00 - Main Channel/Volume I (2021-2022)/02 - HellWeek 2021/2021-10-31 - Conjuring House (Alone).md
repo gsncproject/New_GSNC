@@ -34,6 +34,7 @@
 >- [[Try it]] / [[Don‘t even try]]
 >- [[Earth]]
 >- [[Nine]]
+>- [[Home]]
 
 - The first thing Cory tells them when they arrive is that they are fucked.
 - Last time Seth only lasted 30sec in the basement because he was grabbed from behind by something.

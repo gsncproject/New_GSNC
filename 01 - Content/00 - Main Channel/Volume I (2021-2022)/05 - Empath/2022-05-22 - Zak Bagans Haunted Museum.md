@@ -23,6 +23,7 @@
 >**Patterns**:
 >- [[Thirteen]] / [[Fourteen]] / [[Seven]]
 >- [[Relax]]
+>- [[Stay]]
 
 - Just as they were introducing themselves a door slams shut 
 

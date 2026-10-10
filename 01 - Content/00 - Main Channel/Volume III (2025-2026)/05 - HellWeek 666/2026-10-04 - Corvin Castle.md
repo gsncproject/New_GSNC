@@ -30,6 +30,9 @@
 >- [[Friend]]
 >- [[Four]] / [[Three]]
 >- [[Free]]
+>- [[Wall]]
+>- [[Hole]]
+>- [[Home]]
 
 
 FIRST VIDEO OF HELLWEEK LETSSSS GOOOOOOOOOOOOOOOO (gunna be so fucking stressed AHHH)

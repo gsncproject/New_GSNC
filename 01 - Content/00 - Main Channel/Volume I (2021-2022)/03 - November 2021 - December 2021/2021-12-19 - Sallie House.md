@@ -28,7 +28,7 @@
 >———
 >**Patterns**:
 >- [[Seven]] / [[Six]] / [[Four]]
->- [[Move]]
+>- [[Move]] / [[Leave]]
 >- [[Music]]
 >- [[Fire]]
 >- [[Fall]]

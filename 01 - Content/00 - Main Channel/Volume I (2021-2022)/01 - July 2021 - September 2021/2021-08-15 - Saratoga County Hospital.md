@@ -19,6 +19,7 @@
 >———
 >**Patterns**:
 >- [[Maybe]]
+>- [[Leave]]
 
 ## Facts:
 - It was a hospital for tuberculosis.

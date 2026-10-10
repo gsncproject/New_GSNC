@@ -41,7 +41,8 @@
 >- [[Sallie]]
 >- [[Free]]
 >- [[Me]]
->- [[Trapped]]
+>- [[Trapped]] / [[Leave]]
+>- [[Home]]
 
 - Quackity kinda wants to leave immediately
 	- He believes in ghostiesss

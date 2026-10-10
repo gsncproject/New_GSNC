@@ -30,6 +30,7 @@
 >**Patterns**:
 >- [[Me]]
 >- [[King]] / [[Owner]]
+>- [[Leave]]
 
 - The hotel has a rich mafia history
 

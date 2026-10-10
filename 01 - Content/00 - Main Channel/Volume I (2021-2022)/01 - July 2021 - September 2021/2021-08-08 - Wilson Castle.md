@@ -24,7 +24,7 @@
 >- Lots of symbols are hidden all around the house like the Eye of Horus 
 >- [[Seven]]
 >- [[Me]]
->- [[Move on]]
+>- [[Move on]] / [[Leave]]
 >- [[It‘s time]]
 >- [[Relax]]
 >- [[Music]]
