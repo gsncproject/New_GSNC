@@ -21,7 +21,7 @@
 #### 2026-09-16
 The Puppeteer Theory basically covers the question of, or more the idea that Sallie, Lucy, Emily, etc. could be connected to one bigger entity rather than being completely seperate entites.
 
-So, instead of:
+**So, instead of**:
 1. Sallie = one entity 
 2. Lucy = another entity 
 3. Emily = another another entity 
