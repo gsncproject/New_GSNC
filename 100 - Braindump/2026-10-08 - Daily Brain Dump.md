@@ -16,7 +16,7 @@
 - TikTok growth / GSNC project reach.
 ## Part I — Corvin Castle Transcription
 The user began transcribing the October 4, 2026 Corvin Castle investigation on October 8.
-### Progres
+### Progress:
 - The user started at approximately 11:47 AM.
 - They took a break at approximately 1:53 PM.
 - Elapsed transcription time at the break was approximately 2 hours and 6 minutes.
