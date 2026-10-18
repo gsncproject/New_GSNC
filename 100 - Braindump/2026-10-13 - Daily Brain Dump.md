@@ -1,7 +1,5 @@
-2026-10-13 — Daily Braindump
-
-Today’s Topics
-
+# 2026-10-13 — Daily Braindump
+## Today’s Topics
 - Spending the day at the library and initially looking for folklore, myths, and darker material.
 - Switching from folklore-book hunting to GSNC research.
 - Returning to the impersonation / mimicry question and deciding to investigate concrete claims rather than staying at the level of general theory.
@@ -10,13 +8,8 @@ Today’s Topics
 - Keeping direct observations, reported experiences, transcript wording, and interpretations separate.
 - No final relevance decisions were recorded in the conversation available for this Braindump.
 - No changes were made to the GitHub repository.
-
-  
-
-Part I — Library Day and Change of Research Direction
-
-The library visit
-
+## Part I — Library Day and Change of Research Direction
+### The library visit
 The user was at the library on Tuesday, October 13, at approximately 11:10 AM.
 
 The initial plan was to look for folklore, myths, and darker or more disturbing stories. The user was open to books in either German or English.
@@ -24,17 +17,13 @@ The initial plan was to look for folklore, myths, and darker or more disturbing 
 However, the focus eventually shifted back to GSNC.
 
 The user decided to spend the session investigating potential impersonation claims rather than continuing to search for books.
-
-Confirmed direction change
-
+### Confirmed direction change
 The user enthusiastically proposed splitting the research work:
+>“OKAYYY U LOOK UP THE FUCKING IMPERSONANTION CLAIMS AND I LOOK IF IT IS FUCKING RELEVANT”
 
-“OKAYYY U LOOK UP THE FUCKING IMPERSONANTION CLAIMS AND I LOOK IF IT IS FUCKING RELEVANT”
-
-The practical arrangement was:
-
-- ChatGPT: Search existing GSNC material and external sources for potential impersonation / mimicry claims.
-- User: Evaluate whether the leads are relevant to the research question.
+**The practical arrangement was**:
+- **ChatGPT**: Search existing GSNC material and external sources for potential impersonation / mimicry claims.
+- **User**: Evaluate whether the leads are relevant to the research question.
 
 This division of work matters because finding a possible mimicry claim is not the same as establishing that it belongs in the final impersonation index.
 

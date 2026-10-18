@@ -41,6 +41,7 @@
 - [[Elizabeth Wilson]]
 - [[Ellie (St. Augustine Lighthouse)]]
 - [[Emily (Bellaire House)]]
+- [[Emma (pers. Inv.)]]
 - [[Emma Voelcker]]
 # F
 - [[F.O Stanley]]
