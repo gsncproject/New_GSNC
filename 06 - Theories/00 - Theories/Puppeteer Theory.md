@@ -37,3 +37,5 @@ One of the biggest question I have had since Lucy became part of this whole thin
 **If all these names are connected, then who the fuck is actually behind them?**
 
 Back in 2024 I had the idea that Lucy could be the one operating but yeah, I start to question that hypothesis.
+#### 2026-10-02:
+- In the [[2021-12-19 - Sallie House]] video Nate causually mentions that there might be a puppeteer, but then again 

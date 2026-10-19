@@ -13,6 +13,8 @@
 - [[Bellaire House]]
 - [[2022-04-16 - The Stanley Hotel (Return)]]
 - [[Estes Method]]
+#### 2026-10-02:
+- The Sam‘s attachment theory kinda feels pretty incomplete, so what the fuck is missing? Because it can‘t just be this one „explanation“ for this. 
 #### The Whole Theory Better Explained
 Okay so hear me out.
 
