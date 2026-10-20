@@ -15,6 +15,8 @@
 - [[Estes Method]]
 #### 2026-10-02:
 - The Sam‘s attachment theory kinda feels pretty incomplete, so what the fuck is missing? Because it can‘t just be this one „explanation“ for this. 
+- In [[2022-04-16 - The Stanley Hotel (Return)]] Lucy gets identified as Sam‘s possible attachment, **if** its not Sallie.
+- The [[Pendle Hill]] investigation might be one turning point of the attachment thing, because what if due to Sam summoning the [[Devil]] something entirely changed?
 #### The Whole Theory Better Explained
 Okay so hear me out.
 

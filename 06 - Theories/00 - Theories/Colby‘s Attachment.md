@@ -28,12 +28,5 @@ So now I have absolutely no fucking clue
 
 BUTTTT none of this means that the attachment is actually any of these names.
 
-Especially the GhostTube answers because like... it literally gave me different names after saying it was unknown 
-### Things I need to figure out
-- Who/where did the Mason thing originally come from?
-- Is Mason actually a real person?
-- Where did Dennis come from?
-- Has Colby's attachment ever actually given a name?
-- Did Sam/Colby ever identify the attachment themselves?
-- Are any of these names connected to the same person/entity?
-- Or am I once again making everything 500x more complicated than it needs to be
+Especially the GhostTube answers because like... it literally gave me different names after saying it was unknown.
+#### 
