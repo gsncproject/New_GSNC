@@ -2,6 +2,7 @@
 
 - [[Adam's Theory (We Are The Ghosts)]]
 - [[Attachment-Web Theory]]
+- [[Colby‘s Attachment]]
 - [[Egregore Theory]]
 - [[Lucy-Tulpa Theory]]
 - [[Minions Theory]]
