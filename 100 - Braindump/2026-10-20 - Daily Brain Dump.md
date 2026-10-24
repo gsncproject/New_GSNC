@@ -1,6 +1,5 @@
-^2026-10-20 — Daily Braindump
-
-Today’s Topics
+# 2026-10-20 — Daily Brain Dump
+## Today’s Topics
 
 - Finding the existing TikTok Video Notes in Obsidian and confirming their presence in the GSNC GitHub repository.
 - Reviewing the three currently documented TikToks in 01 - Content/99 - Video Notes.
