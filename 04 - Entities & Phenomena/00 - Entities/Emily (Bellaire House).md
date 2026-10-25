@@ -8,7 +8,8 @@ Emily Davis is the name of a known spirit at the Bellaire House in Bellaire, Ohi
 * Phenomena: Associated with electronic voice phenomena (EVPs), sudden temperature drops, moving objects, and heavy spiritual manipulation within the home.
 ## Related Notes
 - [[Bellaire House]]
-- 
+- [[The Bellaire House]]
+- [[Can]]
 
 ---
 
