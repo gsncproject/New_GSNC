@@ -17,7 +17,7 @@
 			- [x] - Sallie House !!!!  [completion:: 2026-05-23]
 			- [x] - Villisca Axe Murder House [completion:: 2026-10-03]
 		- [ ] - The Attachment 
-			- [ ] - Fort Henry
+			- [x] - Fort Henry [completion:: 2026-10-25]
 			- [ ] - Casa Loma 
 			- [ ] - Bellaire House 
 			- [ ] - West Virginia State Penitentiary
