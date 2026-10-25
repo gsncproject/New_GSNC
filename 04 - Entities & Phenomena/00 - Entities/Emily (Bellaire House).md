@@ -1,3 +1,4 @@
+#entity #gsnc 
 # Emily Davis 
 ## Who is Emily Davis?
 Emily Davis is the name of a known spirit at the Bellaire House in Bellaire, Ohio. She is known to either be a spirit of a child who died tragically or a malevolent entity in disguise of a child. She is known to live on the second floor on the said house.
@@ -9,10 +10,6 @@ Emily Davis is the name of a known spirit at the Bellaire House in Bellaire, Ohi
 ## Related Notes
 - [[Bellaire House]]
 - [[The Bellaire House]]
-- [[Can]]
-
----
-
+- [[Entity Identification Reliability]]
 ## Sources & External Links
-* [Official Bellaire House Tours & History](https://bellairehousetours.com)
-* Paranormal investigations featured on *Sam and Colby* and various television documentaries.
+* [Official Bellaire House Tours & History](https://bellairehousetours.com) 
