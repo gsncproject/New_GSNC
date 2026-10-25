@@ -1,0 +1,23 @@
+# Emily Davis 
+## Who is Emily Davis?
+Emily Davis is the name given to a prominent entity—either a tragic child spirit or a malevolent entity in disguise—inhabiting the second floor of the notoriously haunted Bellaire House in Bellaire, Ohio. 
+
+Emily Davis is the name of a known spirit at the Bellaire House in 
+## Key Details
+* Location: The "Emily Davis Room" on the second floor of the Bellaire House (built 1847).
+* The Child Spirit Theory: Believed by some to be the daughter of Jacob Davis (founder of Bellaire, OH), who allegedly died tragically. Investigators often use toys and bouncy balls as trigger objects to prompt communication.
+* The Demonic Disguise Theory: A darker theory popular among paranormal teams suggests that there are no official records of an Emily Davis dying on the property. Instead, it is theorized to be a malevolent or demonic entity taking the form of a child to lower investigators' defenses.
+* Phenomena: Associated with electronic voice phenomena (EVPs), sudden temperature drops, moving objects, and heavy spiritual manipulation within the home.
+
+---
+
+## Related Notes
+* [[Bellaire House Overview]]
+* [[Paranormal Entities]]
+* [[Ley Lines and Portals]]
+
+---
+
+## Sources & External Links
+* [Official Bellaire House Tours & History](https://bellairehousetours.com)
+* Paranormal investigations featured on *Sam and Colby* and various television documentaries.
