@@ -2,7 +2,7 @@
 ## Who is Emily Davis?
 Emily Davis is the name given to a prominent entity—either a tragic child spirit or a malevolent entity in disguise—inhabiting the second floor of the notoriously haunted Bellaire House in Bellaire, Ohio. 
 
-Emily Davis is the name of a known spirit at the Bellaire House in 
+Emily Davis is the name of a known spirit at the Bellaire House in Bellaire, Ohio. She is known to either be a spirit of a child who died tragically or a malevolent entity in disguise of a child. She is known to live 
 ## Key Details
 * Location: The "Emily Davis Room" on the second floor of the Bellaire House (built 1847).
 * The Child Spirit Theory: Believed by some to be the daughter of Jacob Davis (founder of Bellaire, OH), who allegedly died tragically. Investigators often use toys and bouncy balls as trigger objects to prompt communication.
