@@ -126,4 +126,4 @@
 			- [ ] - Abandoned Asylum X
 			- [ ] - Devil‘s Prison 
 			- [ ] - America‘s Catacombs 
-			- [ ] - Appalacha 
+			- [ ] - Appalachian Castle 
