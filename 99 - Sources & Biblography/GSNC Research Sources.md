@@ -35,41 +35,23 @@
 [URL-052](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
 [URL-053](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 ## Other external sources
-
-● [URL-002](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
-
-● [URL-004](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
-
-● [URL-006](https://vm.tiktok.com/ZGdCmrQco/)
-
-● [URL-007](https://vm.tiktok.com/ZGdCmeR7V/)
-
-● [URL-008](https://vm.tiktok.com/ZGdCaWnHf/)
-
-● [URL-013](https://vm.tiktok.com/ZGdCV9NbP/)
-
-● [URL-014](https://vm.tiktok.com/ZGdCVhAFR/)
-
-● [URL-015](https://vm.tiktok.com/ZGdCVfxwd/)
-
-● [URL-016](https://www.rendsburg-tourismus-marketing.de/sehenswuerdigkeiten/altes-rathaus)
-
-● [URL-017](https://www.rendsburg-tourismus-marketing.de/entdecken-und-erleben/stadtfuehrungen/stadtfuehrungen-extra)
-
-● [URL-018](https://www.kirchengemeinde-rendsburg.de/orte/friedhofe)
-
-● [URL-019](https://www.panevino.de/ueber-uns/geschichte-unseres-hauses/)
-
-● [URL-020](https://geschichte-s-h.de/sh-von-a-bis-z/h/hexenverfolgung/)
-
-● [URL-021](https://bellairehousetours.com/)
-
-● [URL-022](https://vm.tiktok.com/ZGdCVuapx/)
-
-● [URL-023](https://vm.tiktok.com/ZGdCVp95K/)
-
-● [URL-024](https://vm.tiktok.com/ZGdCqwUqR/)
-
+[URL-002](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
+[URL-004](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
+[URL-006](https://vm.tiktok.com/ZGdCmrQco/)
+[URL-007](https://vm.tiktok.com/ZGdCmeR7V/)
+[URL-008](https://vm.tiktok.com/ZGdCaWnHf/)
+[URL-013](https://vm.tiktok.com/ZGdCV9NbP/)
+[URL-014](https://vm.tiktok.com/ZGdCVhAFR/)
+[URL-015](https://vm.tiktok.com/ZGdCVfxwd/)
+[URL-016](https://www.rendsburg-tourismus-marketing.de/sehenswuerdigkeiten/altes-rathaus)
+[URL-017](https://www.rendsburg-tourismus-marketing.de/entdecken-und-erleben/stadtfuehrungen/stadtfuehrungen-extra)
+[URL-018](https://www.kirchengemeinde-rendsburg.de/orte/friedhofe)
+[URL-019](https://www.panevino.de/ueber-uns/geschichte-unseres-hauses/)
+[URL-020](https://geschichte-s-h.de/sh-von-a-bis-z/h/hexenverfolgung/)
+[URL-021](https://bellairehousetours.com/)
+[URL-022](https://vm.tiktok.com/ZGdCVuapx/)
+[URL-023](https://vm.tiktok.com/ZGdCVp95K/)
+[URL-024](https://vm.tiktok.com/ZGdCqwUqR/)
 Internal GSNC references
 
 ● [URL-009](https://github.com/gsncproject/New_GSNC/blob/main/00%20-%20Origins/01%20-%20OG%20Digital%20GSNC/2022-03-31%20-%20Lucy%20=%20Sallie%20=%20Emily.md)
