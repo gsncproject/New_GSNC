@@ -3,7 +3,7 @@
 # GSNC Sources
 ## Video sources
 [Sam and Colby: Villisca Axe Murder House](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
-[URL-003](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
+[(Outside Transcript) Sam and Colby: Cression Sanatorium](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
 [URL-005](https://youtu.be/MF1mHV9gXVw)
 [URL-025](https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9)
 [URL-026](https://youtu.be/CFUSTfuodjg?is=wCUSu4k05lejCj0D)
