@@ -2,33 +2,21 @@
 
 # GSNC Sources
 ## Video sources
- [URL-001](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
+[URL-001](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
 [URL-003](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
 [URL-005](https://youtu.be/MF1mHV9gXVw)
-
-● [URL-025](https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9)
-
-● [URL-026](https://youtu.be/CFUSTfuodjg?is=wCUSu4k05lejCj0D)
-
-● [URL-027](https://youtu.be/KDAGWyEQIHo?is=0cQqyZrhy25Kej0f)
-
-● [URL-028](https://youtu.be/3Gu86YYGr78?is=CKIpHaa1pz5SSpBG)
-
-● [URL-029](https://youtu.be/GDD2VIevLIM?is=OU8cjAIq1lSqCsQU)
-
-● [URL-030](https://youtu.be/JQqCr02oM6s?is=xdJjZ1lYfXM-HStS)
-
-● [URL-031](https://youtu.be/aUrKlUD5NcY?si=aC3TSEUlv_OOV5eL)
-
-● [URL-032](https://youtu.be/tpGTmZAhzCo?si=hHgyZi8FC3XLR0eE)
-
-● [URL-033](https://youtu.be/Oej8jDlMmpY?is=13N0AmpcIrZ7cCC7)
-
-● [URL-034](https://youtu.be/Uxpdha_qMO4?is=J0vHxDnb2eZRWaiR)
-
-● [URL-035](https://youtu.be/YVGwnroncDY?si=AOvs5NZ6BGnof50C)
-
-● [URL-036](https://youtu.be/Hw-7thyvCSA?is=8lYypWTItcdw0InQ)
+[URL-025](https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9)
+[URL-026](https://youtu.be/CFUSTfuodjg?is=wCUSu4k05lejCj0D)
+[URL-027](https://youtu.be/KDAGWyEQIHo?is=0cQqyZrhy25Kej0f)
+[URL-028](https://youtu.be/3Gu86YYGr78?is=CKIpHaa1pz5SSpBG)
+[URL-029](https://youtu.be/GDD2VIevLIM?is=OU8cjAIq1lSqCsQU)
+[URL-030](https://youtu.be/JQqCr02oM6s?is=xdJjZ1lYfXM-HStS)
+[URL-031](https://youtu.be/aUrKlUD5NcY?si=aC3TSEUlv_OOV5eL)
+[URL-032](https://youtu.be/tpGTmZAhzCo?si=hHgyZi8FC3XLR0eE)
+[URL-033](https://youtu.be/Oej8jDlMmpY?is=13N0AmpcIrZ7cCC7)
+[URL-034](https://youtu.be/Uxpdha_qMO4?is=J0vHxDnb2eZRWaiR)
+[URL-035](https://youtu.be/YVGwnroncDY?si=AOvs5NZ6BGnof50C)
+[URL-036](https://youtu.be/Hw-7thyvCSA?is=8lYypWTItcdw0InQ)
 
 ● [URL-037](https://youtu.be/Ap7ZhpR2H9s?is=eVadPrIcfNIqLd23)
 
