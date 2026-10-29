@@ -2,7 +2,7 @@
 
 # GSNC Sources
 ## Video sources
-[URL-001](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
+[Sam and Colby: Villisca Axe Murder House](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
 [URL-003](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
 [URL-005](https://youtu.be/MF1mHV9gXVw)
 [URL-025](https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9)
@@ -52,12 +52,3 @@
 [URL-022](https://vm.tiktok.com/ZGdCVuapx/)
 [URL-023](https://vm.tiktok.com/ZGdCVp95K/)
 [URL-024](https://vm.tiktok.com/ZGdCqwUqR/)
-Internal GSNC references
-
-● [URL-009](https://github.com/gsncproject/New_GSNC/blob/main/00%20-%20Origins/01%20-%20OG%20Digital%20GSNC/2022-03-31%20-%20Lucy%20=%20Sallie%20=%20Emily.md)
-
-● [URL-010](https://github.com/gsncproject/New_GSNC/blob/main/00%20-%20Origins/01%20-%20OG%20Digital%20GSNC/2022-04-04%20-%20The%20Impersonation%20Question.md)
-
-● [URL-011](https://github.com/gsncproject/New_GSNC/blob/main/00%20-%20Origins/01%20-%20OG%20Digital%20GSNC/2022-04-%3F%3F%20-%20The%20%E2%80%9ELucy%20pretends%20to%20be%20multiple%20identities%E2%80%9C%20statement.md)
-
-● [URL-012](https://github.com/gsncproject/New_GSNC/blob/main/00%20-%20Origins/01%20-%20OG%20Digital%20GSNC/2022-03-31%20%E2%80%94%202022-04-04%20-%20The%20multiple-person%20attachment%20paradox.md)
