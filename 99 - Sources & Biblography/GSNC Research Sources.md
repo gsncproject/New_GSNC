@@ -17,42 +17,24 @@
 [URL-034](https://youtu.be/Uxpdha_qMO4?is=J0vHxDnb2eZRWaiR)
 [URL-035](https://youtu.be/YVGwnroncDY?si=AOvs5NZ6BGnof50C)
 [URL-036](https://youtu.be/Hw-7thyvCSA?is=8lYypWTItcdw0InQ)
-
-● [URL-037](https://youtu.be/Ap7ZhpR2H9s?is=eVadPrIcfNIqLd23)
-
-● [URL-038](https://youtu.be/r5YhdvmLIoA?is=SOJrGjHBRGYLgJ4M)
-
-● [URL-039](https://youtu.be/QDxYWs3tTl4?is=Dq83g7xPUjQt8j9_)
-
-● [URL-040](https://youtu.be/wnnbPp_EfBw?si=24VsWqRkg1rXjV0_)
-
-● [URL-041](https://youtu.be/0bqwiR871KU?is=BtS07CGtRO_nCmTR)
-
-● [URL-042](https://youtu.be/_oPgwtjLJ1w?si=o6Zua66-0vaF0Fps)
-
-● [URL-043](https://youtu.be/olsDnOWgMW4?is=qVTZnqcgLsjD06_F)
-
-● [URL-044](https://youtu.be/UM7CypIyXXY?si=TF1B6yJQQrS4QeME)
-
-● [URL-045](https://youtu.be/9oY-xLC08KA?is=y0oWz9vNRQuGFIhH)
-
-● [URL-046](https://youtu.be/C8DseiaHFQk?si=dxlQGsxUb6grVofN)
-
-● [URL-047](https://youtu.be/MXLtFE0MiiU?si=Kl5mK_03BVa799T1)
-
-● [URL-048](https://youtu.be/E6mwC6UwZ_c?si=s9lKOlzIK-1s1t6c)
-
-● [URL-049](https://youtu.be/JtJjHcvNvIQ?si=DIz8iDHrboGrENMp)
-
-● [URL-050](https://youtu.be/nOsSHug9uBw?si=D0BAjqIGGnaEyXgs)
-
-● [URL-051](https://youtu.be/437eKqGwBQc?si=1G37Y_-W4XrzoWqx)
-
-● [URL-052](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
-
-● [URL-053](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
-
-Other external sources
+[URL-037](https://youtu.be/Ap7ZhpR2H9s?is=eVadPrIcfNIqLd23)
+[URL-038](https://youtu.be/r5YhdvmLIoA?is=SOJrGjHBRGYLgJ4M)
+[URL-039](https://youtu.be/QDxYWs3tTl4?is=Dq83g7xPUjQt8j9_)
+[URL-040](https://youtu.be/wnnbPp_EfBw?si=24VsWqRkg1rXjV0_)
+[URL-041](https://youtu.be/0bqwiR871KU?is=BtS07CGtRO_nCmTR)
+[URL-042](https://youtu.be/_oPgwtjLJ1w?si=o6Zua66-0vaF0Fps)
+[URL-043](https://youtu.be/olsDnOWgMW4?is=qVTZnqcgLsjD06_F)
+[URL-044](https://youtu.be/UM7CypIyXXY?si=TF1B6yJQQrS4QeME)
+[URL-045](https://youtu.be/9oY-xLC08KA?is=y0oWz9vNRQuGFIhH)
+[URL-046](https://youtu.be/C8DseiaHFQk?si=dxlQGsxUb6grVofN)
+[URL-047](https://youtu.be/MXLtFE0MiiU?si=Kl5mK_03BVa799T1)
+[URL-048](https://youtu.be/E6mwC6UwZ_c?si=s9lKOlzIK-1s1t6c)
+[URL-049](https://youtu.be/JtJjHcvNvIQ?si=DIz8iDHrboGrENMp)
+[URL-050](https://youtu.be/nOsSHug9uBw?si=D0BAjqIGGnaEyXgs)
+[URL-051](https://youtu.be/437eKqGwBQc?si=1G37Y_-W4XrzoWqx)
+[URL-052](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
+[URL-053](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
+## Other external sources
 
 ● [URL-002](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 
