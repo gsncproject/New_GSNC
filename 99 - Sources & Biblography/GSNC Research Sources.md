@@ -36,7 +36,7 @@
 [Sam and Colby: Farrar School Day 1 & 2](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 ## Other external sources
 [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
-[URL-004](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
+[Morbid Podcast Transcript w// Sam and Colby ](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
 [URL-006](https://vm.tiktok.com/ZGdCmrQco/)
 [URL-007](https://vm.tiktok.com/ZGdCmeR7V/)
 [URL-008](https://vm.tiktok.com/ZGdCaWnHf/)
