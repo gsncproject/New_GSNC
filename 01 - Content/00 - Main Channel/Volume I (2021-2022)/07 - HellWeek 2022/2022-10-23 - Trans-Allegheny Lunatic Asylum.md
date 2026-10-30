@@ -13,7 +13,7 @@
 >- [[Creeper]] 
 >- [[Hat Man]] 
 >- [[Doppelgänger]] 
->- [[Lily (disguise)]]
+>- [[Lily (disguise, Trans-Allegheny)]]
 >- [[Charlie (Trans-Allegheny)]]
 >- [[John (Bathroom guy)]]
 >- [[Dean (Trans-Allegheny)]]
