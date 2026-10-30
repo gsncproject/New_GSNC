@@ -11,6 +11,9 @@
 - [[2021-12-19 - Sallie House]]
 - [[2022-04-16 - The Stanley Hotel (Return)]]
 - [[2022-02-20 - Fort Henry]]
+- [[Can an entity have multiple names?]]
+- [[Can entities impersonate other entities?]]
+- [[Can an entity deliberately lie about its identity?]]
 ## Sam and Colby‘s Videos
 #### What we know from Sam and Colby‘s video (2021-12-19):
 - ([[2021-12-19 - Sallie House]]) We know that the story goes that Sallie was a little six year old girl, who died of appendicitis. She hates men because the last thing she saw before she died was a man: the doctor operating on her.
