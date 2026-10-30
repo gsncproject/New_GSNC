@@ -23,7 +23,7 @@
 [Sam and Colby: Yorktown Memorial Hospital](https://youtu.be/wnnbPp_EfBw?si=24VsWqRkg1rXjV0_)
 [Sam and Colby: Sallie House](https://youtu.be/0bqwiR871KU?is=BtS07CGtRO_nCmTR)
 [Sam and Colby: Cosmo Hotel](https://youtu.be/_oPgwtjLJ1w?si=o6Zua66-0vaF0Fps)
-[URL-043](https://youtu.be/olsDnOWgMW4?is=qVTZnqcgLsjD06_F)
+[Sam and Colby: Mizpah Hotel (1)](https://youtu.be/olsDnOWgMW4?is=qVTZnqcgLsjD06_F)
 [URL-044](https://youtu.be/UM7CypIyXXY?si=TF1B6yJQQrS4QeME)
 [URL-045](https://youtu.be/9oY-xLC08KA?is=y0oWz9vNRQuGFIhH)
 [URL-046](https://youtu.be/C8DseiaHFQk?si=dxlQGsxUb6grVofN)
