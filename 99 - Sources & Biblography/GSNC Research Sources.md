@@ -47,7 +47,7 @@
 [Rendsburg: Altes Rathaus](https://www.rendsburg-tourismus-marketing.de/sehenswuerdigkeiten/altes-rathaus)
 [Rendsburg: Stadtführungen](https://www.rendsburg-tourismus-marketing.de/entdecken-und-erleben/stadtfuehrungen/stadtfuehrungen-extra)
 [Rendsburg: Friedhöfe](https://www.kirchengemeinde-rendsburg.de/orte/friedhofe)
-[URL-019](https://www.panevino.de/ueber-uns/geschichte-unseres-hauses/)
+[Ren](https://www.panevino.de/ueber-uns/geschichte-unseres-hauses/)
 [URL-020](https://geschichte-s-h.de/sh-von-a-bis-z/h/hexenverfolgung/)
 [URL-021](https://bellairehousetours.com/)
 [URL-022](https://vm.tiktok.com/ZGdCVuapx/)
