@@ -35,7 +35,7 @@
 [Sam and Colby: Indiana State Sanatorium](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
 [Sam and Colby: Farrar School Day 1 & 2](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 ## Other external sources
-[PBS: ](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
+[PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 [URL-004](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
 [URL-006](https://vm.tiktok.com/ZGdCmrQco/)
 [URL-007](https://vm.tiktok.com/ZGdCmeR7V/)
