@@ -6,4 +6,4 @@
 - [[2021-10-21 - Queen Mary Ship (Return)]]
 - [[Mommy]]
 #### What we know Sam and Colby‘s video (2021-10-21):
-- [[2021-10-21 - Queen Mary Ship (Return)]]
+- ([[2021-10-21 - Queen Mary Ship (Return)]]) Jackie is described as spirit often associated with the first-class pool on the Queen Mary Ship.
