@@ -31,8 +31,8 @@
 [Sam and Colby: Conjuring House (1)](https://youtu.be/E6mwC6UwZ_c?si=s9lKOlzIK-1s1t6c)
 [Sam and Colby: Saratoga Hospital](https://youtu.be/JtJjHcvNvIQ?si=DIz8iDHrboGrENMp)
 [Sam and Colby: Wilson Castle](https://youtu.be/nOsSHug9uBw?si=D0BAjqIGGnaEyXgs)
-[URL-051](https://youtu.be/437eKqGwBQc?si=1G37Y_-W4XrzoWqx)
-[URL-052](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
+[Sam and Colby: St. Augustine Lighthouse](https://youtu.be/437eKqGwBQc?si=1G37Y_-W4XrzoWqx)
+[Sam and Colby: Indiana State Sanatorium](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
 [URL-053](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 ## Other external sources
 [URL-002](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
