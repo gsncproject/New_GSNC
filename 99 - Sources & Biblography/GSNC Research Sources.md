@@ -51,5 +51,5 @@
 [Hexenverfolgung in Schleswig-Holstein](https://geschichte-s-h.de/sh-von-a-bis-z/h/hexenverfolgung/)
 [Bellaire House Offical Site](https://bellairehousetours.com/)
 [TikTok: Cresson x Appalachian x Pendle Hill](https://vm.tiktok.com/ZGdCVuapx/)
-[URL-023](https://vm.tiktok.com/ZGdCVp95K/)
-[URL-024](https://vm.tiktok.com/ZGdCqwUqR/)
+[TikTok: Poveglia Attachment](https://vm.tiktok.com/ZGdCVp95K/)
+[TikTok: Life Path Numbers (Sam, Colby, Celina and Kris)](https://vm.tiktok.com/ZGdCqwUqR/)
