@@ -33,7 +33,7 @@
 [Sam and Colby: Wilson Castle](https://youtu.be/nOsSHug9uBw?si=D0BAjqIGGnaEyXgs)
 [Sam and Colby: St. Augustine Lighthouse](https://youtu.be/437eKqGwBQc?si=1G37Y_-W4XrzoWqx)
 [Sam and Colby: Indiana State Sanatorium](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
-[URL-053](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
+[Sam and Colby: Farrar School Day 1 & 2](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 ## Other external sources
 [URL-002](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 [URL-004](https://podcasts.happyscribe.com/morbid/dialing-the-dead-a-seance-with-sam-colby)
