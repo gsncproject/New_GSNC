@@ -6,4 +6,5 @@
 - [[Dylan Stevens]]
 - [[Steve Brodt]]
 ## Sam and Colby‘s Videos
-#### What we know from Sam and Colby‘s Video (01):
+#### What we know from Sam and Colby‘s Video (2021-10-28):
+- ([[2021-10-28 - Waverly Hills Sanatorium]]) After the 
