@@ -10,7 +10,7 @@
 >[!Quick Summary]
 >**Entities/Spirits**:
 >- [[Strigoi]] 
->- [[Vlad The Impaler]] (possibly)
+>- [[Vlad the Impaler]] (possibly)
 >- Trapped Spirits 
 >———
 >**Important Events**:

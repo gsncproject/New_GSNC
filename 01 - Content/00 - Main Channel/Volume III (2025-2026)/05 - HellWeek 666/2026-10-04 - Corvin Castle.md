@@ -9,7 +9,7 @@
 
 >[!Quick Summary]
 >**Entities/Spirits**:
->- [[Vlad The Impaler]]
+>- [[Vlad the Impaler]]
 >- dark [[Poltergeists|Poltergeist]]
 >- [[John Hunyadi]]
 >- [[Elizabeth Hunyadi]]
