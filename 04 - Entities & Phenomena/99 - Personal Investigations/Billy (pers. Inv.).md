@@ -9,4 +9,5 @@
 - [[Joline F]]
 ## What do we know about Billy?
 - It originates from [[Haunted School]].
-- Knows Sam
+- Knows [[Sam Golbach|Sam]] and [[Colby Brock|Colby]]
+- 
