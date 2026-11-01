@@ -27,6 +27,7 @@ Now they kinda explore the castle with Erin.
 	- Colby says he doesn‘t think that someone passed away in the castle at all but him and Sam aren‘t 100% sure.
 - Erin says she feels like there is a male presence in that said bathroom.
 
-- In what I believe is Sir Henry‘s room they see fingerprints on the mirror and Erin asks if they ever did Scrying 
+- In some bedroom they see fingerprints on the mirror and Erin asks if they ever did Scrying 
 	- Colby compares Scrying with Bloody Mary, HELP WHAT AHHHH 
-	- 
+
+- In Sir Henry‘s bedroom
