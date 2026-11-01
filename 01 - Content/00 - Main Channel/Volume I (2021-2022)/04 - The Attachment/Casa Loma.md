@@ -14,3 +14,5 @@
 >———
 >**Patterns**:
 
+- The castle was owned by a guy named Sir Henry 
+- 
