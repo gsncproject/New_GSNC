@@ -35,4 +35,5 @@ Now they kinda explore the castle with Erin.
 - In Sir Henry‘s office he is often seen as an apparition
 	- Apparently its the most active room
 - Sam asks Erin if she believes in attachments… she says yes.
+- Kat asks if Erin could see if someone has an attachment and she also says yes, if they wanna go into that- BRO WHATTTTTTTT
 - 
