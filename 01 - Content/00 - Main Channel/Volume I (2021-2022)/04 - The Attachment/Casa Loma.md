@@ -20,4 +20,7 @@
 - Erin thinks they might get stuff in the stables
 - She also feels like there is a woman around keeping an eye on on them 
 	- Erin also senses a little girl (whats up with the little girls AHHHHHHH)
-	- Apparently she says she thinks that there is an older man too with combed back 
+	- Apparently she says she thinks that there is an older man too with combed back hair and he likes to drink alcohol
+
+Now they kinda explore the castle with Erin. 
+- As they go into Lady Mary‘s Suite Erin asks in the bathroom whether they‘
