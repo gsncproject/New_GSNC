@@ -19,3 +19,4 @@
 - Her name is Erin and she is an evidential psychic medium 
 - Erin thinks they might get stuff in the stables
 - She also feels like there is a woman around keeping an eye on on them 
+	- Erin also senses a little girl (whats up with the little girls ahhhh)
