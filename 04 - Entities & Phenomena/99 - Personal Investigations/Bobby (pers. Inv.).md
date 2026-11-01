@@ -5,6 +5,9 @@
 - [[Lucy]]
 - [[Minions Theory]]
 - [[Minions 2]]
+- [[Billy (pers. Inv.)]]
+- [[Betty (pers. Inv.)]]
+- [[Malina‘s Attachments]]
 ## What do we know about Bobby?
 - Bobby is the only attachment that likes/loves hiding in the walls.
 - It possibly originates from [[Haunted School]]
