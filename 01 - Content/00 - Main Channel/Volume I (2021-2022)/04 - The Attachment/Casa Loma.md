@@ -30,4 +30,6 @@ Now they kinda explore the castle with Erin.
 - In some bedroom they see fingerprints on the mirror and Erin asks if they ever did Scrying 
 	- Colby compares Scrying with Bloody Mary, HELP WHAT AHHHH 
 
-- In Sir Henry‘s bedroom
+- In Sir Henry‘s bedroom Sam comments on the Chrismas Tree 
+
+- In Sir Henry‘s office he is often seen as an apparition
