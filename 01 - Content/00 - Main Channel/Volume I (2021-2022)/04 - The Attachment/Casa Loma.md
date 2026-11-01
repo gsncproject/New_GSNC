@@ -37,3 +37,6 @@ Now they kinda explore the castle with Erin.
 - Sam asks Erin if she believes in attachments… she says yes.
 - Kat asks if Erin could see if someone has an attachment and she also says yes, if they wanna go into that- BRO WHATTTTTTTT
 	- Erin says that Sam has this like male energy with him 
+- OKAY ERIN?! She drops that she thinks that Kat and Colby are both kinda empathic?!!! 
+	- She says Colby like picks it up in his back? Isn‘t that were attachments start, bruv?
+	- 
