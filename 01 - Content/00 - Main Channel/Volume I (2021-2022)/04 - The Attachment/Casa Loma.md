@@ -33,3 +33,6 @@ Now they kinda explore the castle with Erin.
 - In Sir Henry‘s bedroom Sam comments on the Chrismas Tree 
 
 - In Sir Henry‘s office he is often seen as an apparition
+	- Apparently its the most active room
+- Sam asks Erin if she believes in attachments… she says yes.
+- 
