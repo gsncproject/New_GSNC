@@ -42,3 +42,5 @@ Now they kinda explore the castle with Erin.
 		- Then Kat says that she has that with her back. Bro, WHAT IS HAPPENING?!
 
 After Erin leaves Celina admits that she wasn‘t feeling so good.
+
+- Sir Henry was this super rich guy with $400 Million to his name and Casa Loma is like worth $100 Mi
