@@ -23,4 +23,6 @@
 	- Apparently she says she thinks that there is an older man too with combed back hair and he likes to drink alcohol
 
 Now they kinda explore the castle with Erin. 
-- As they go into Lady Mary‘s Suite Erin asks in the bathroom whether they‘
+- As they go into Lady Mary‘s Suite Erin asks in the bathroom whether they‘d know if someone passed away right there 
+	- Colby says he doesn‘t think that someone passed away in the castle at all but him and Sam aren‘t 100% sure.
+- Erin says she feels like there is a male presence in thart ´
