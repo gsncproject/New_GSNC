@@ -123,7 +123,7 @@
 			- [x] - Cresson Sanatorium and Prison  [completion:: 2026-08-08]
 		- [ ] - HellWeek 2026
 			- [x] - Corvin Castle [completion:: 2026-10-09]
-			- [ ] - Abandoned Asylum X
+			- [x] - Abandoned Asylum X [completion:: 2026-11-01]
 			- [ ] - Devil‘s Prison 
 			- [ ] - America‘s Catacombs 
 			- [ ] - Appalachian Castle 
