@@ -43,4 +43,5 @@ Now they kinda explore the castle with Erin.
 
 After Erin leaves Celina admits that she wasn‘t feeling so good.
 
-- Sir Henry was this super rich guy with $400 Million to his name and Casa Loma is like worth $100 Mi
+- Sir Henry was this super rich guy with $400 Million to his name and Casa Loma is like worth $100 Million of that.
+- Sir Henry and his wife Lady Mary only lived 9 years in the castle 
