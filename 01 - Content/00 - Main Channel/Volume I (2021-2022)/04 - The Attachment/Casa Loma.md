@@ -2,10 +2,10 @@
 
 >[!Information]
 >https://youtu.be/R_B9O_w58NU?is=d-8X-xQdMUTa5Zn-
->Title: The Haunting of Hill House (CURSED CA)
->Published: xxxx/xx/xx
->feat.
->Sam Golbach / Colby Brock
+>Title: The Haunting of Hill House (CURSED CASTLE)
+>Published: February 27th 2022 
+>feat. [[CelinaSpookyBoo]]
+>[[Sam Golbach]] / [[Colby Brock]]
 
 >[!Quick Summary]
 >**Entities/Spirits**:
