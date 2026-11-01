@@ -39,4 +39,5 @@ Now they kinda explore the castle with Erin.
 	- Erin says that Sam has this like male energy with him 
 - OKAY ERIN?! She drops that she thinks that Kat and Colby are both kinda empathic?!!! 
 	- She says Colby like picks it up in his back? Isn‘t that were attachments start, bruv?
-	- 
+		- Then Kat says that she has that with her back. Bro, WHAT IS HAPPENING?!
+- 
