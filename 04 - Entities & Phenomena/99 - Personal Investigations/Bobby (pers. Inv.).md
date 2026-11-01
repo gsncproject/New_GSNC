@@ -4,6 +4,9 @@
 **Related Notes**:
 - [[Lucy]]
 - [[Minions Theory]]
+- [[Minions 2]]
+## What do we know about Bobby?
+- 
 #### Puppeteer Concept:
 (*This is a theory proposed in the 2025 GSNC Version „GSNC -- For real Now.pdf“*)
 
