@@ -15,4 +15,6 @@
 >**Patterns**:
 
 - The castle was owned by a guy named Sir Henry 
-### 04:09min - Meeting with a
+### 04:09min - Meeting with a Medium
+- Her name is Erin and she is an evidential psychic medium 
+- Erin thinks they might get stuff in the stabl
