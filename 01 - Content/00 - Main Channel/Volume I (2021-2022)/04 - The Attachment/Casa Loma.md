@@ -25,4 +25,6 @@
 Now they kinda explore the castle with Erin. 
 - As they go into Lady Mary‘s Suite Erin asks in the bathroom whether they‘d know if someone passed away right there 
 	- Colby says he doesn‘t think that someone passed away in the castle at all but him and Sam aren‘t 100% sure.
-- Erin says she feels like there is a male presence in thart ´
+- Erin says she feels like there is a male presence in that said bathroom.
+
+- In what I believe is Sir Henry‘s room they see fingerprints on the mirror and Erin asks if they ever di
