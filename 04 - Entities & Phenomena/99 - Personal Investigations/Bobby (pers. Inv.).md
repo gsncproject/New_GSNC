@@ -9,6 +9,7 @@
 - Bobby is the only attachment that likes/loves hiding in the walls.
 - It possibly originates from [[Haunted School]]
 - It has to do with the [[Picture Incident]] 
+- Bobby has the key-phrase: [[I]]
 #### Puppeteer Concept:
 (*This is a theory proposed in the 2025 GSNC Version „GSNC -- For real Now.pdf“*)
 
