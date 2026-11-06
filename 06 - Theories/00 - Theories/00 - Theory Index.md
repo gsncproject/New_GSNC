@@ -4,6 +4,7 @@
 - [[Attachment-Web Theory]]
 - [[Colby‘s Attachment]]
 - [[Egregore Theory]]
+- [[Entity Identification Reliability]]
 - [[Lucy-Tulpa Theory]]
 - [[Minions Theory]]
 - [[Poveglia-Attachment Theory]]
