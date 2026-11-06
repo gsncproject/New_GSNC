@@ -1,1 +1,1 @@
-- [[Arthur Lionel Brown]] 
+- [[Arthur Lionel Brown (pers. Inv.)]] 
