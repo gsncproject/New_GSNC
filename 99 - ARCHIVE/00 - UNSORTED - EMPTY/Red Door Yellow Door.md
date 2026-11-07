@@ -41,25 +41,21 @@
 | Encountering an uncomfortable man in a suit means ending the game | One of the recurring warnings.                          |
 
 ### Waking the Subject
-
 - One version of the rules claims the guide should shake the subject awake if they cannot wake them.
 - The article explicitly warns against this.
 - Instead, it recommends stopping the questioning, speaking normally, saying the subject’s actual name, and giving them time to become fully alert.
 - Roughly shaking someone who is disoriented can cause injury or panic.
+## 04 — Psychological Explanation
+>[!mind] Why Does It Work?  
+>The article explains the experience primarily through trance induction, guided imagery, and suggestion, rather than paranormal explanations.
 
-04 — Psychological Explanation
-
-[!mind] Why Does It Work?  
-The article explains the experience primarily through trance induction, guided imagery, and suggestion, rather than paranormal explanations.
-
-Factors Involved
-
-- Repetition: Chanting the same phrase repeatedly.
-- Physical contact: Continuous temple massage.
-- Relaxation: Lying down with eyes closed.
-- Darkness: Reduced external stimulation.
-- Fatigue: Often played late at night.
-- Suggestion: The guide asks questions that assume the environment already exists.
+### Factors Involved
+- **Repetition**: Chanting the same phrase repeatedly.
+- **Physical contact**: Continuous temple massage.
+- **Relaxation**: Lying down with eyes closed.
+- **Darkness**: Reduced external stimulation.
+- **Fatigue**: Often played late at night.
+- **Suggestion**: The guide asks questions that assume the environment already exists.
 
 Leading Questions
 
