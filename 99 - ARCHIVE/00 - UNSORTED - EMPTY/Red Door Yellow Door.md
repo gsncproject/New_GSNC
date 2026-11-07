@@ -1,10 +1,10 @@
 #games #gsnc 
 
 # Red Door, Yellow Door — The Game
-[!Info] Overview 
-Red Door, Yellow Door (also known as Doors of the Mind, Black Door, White Door, or basically any colour combination) is a supposedly paranormal sleepover game involving guided visualisation, a trance-like state, and exploring rooms and doors inside one’s mind.
+>[!abstract] Overview 
+>Red Door, Yellow Door (also known as Doors of the Mind, Black Door, White Door, or basically any colour combination) is a supposedly paranormal sleepover game involving guided visualisation, a trance-like state, and exploring rooms and doors inside one’s mind.
 
-01 — What Is It?
+## 01 — What Is It?
 
 - A game involving 2 people: a guide and a subject.
 - The subject supposedly enters a trance and explores a mental environment consisting of rooms, corridors, and doors.
