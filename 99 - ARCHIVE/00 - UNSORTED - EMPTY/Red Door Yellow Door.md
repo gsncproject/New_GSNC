@@ -30,18 +30,17 @@
 - The guide decides when to end the session.
 ## 03 — Supposed Rules & Dangers
 
-|   |   |
-|---|---|
-|Rule|Supposed Meaning|
-|Avoid interacting with people encountered in the rooms|They might supposedly be evil or deceptive.|
-|Leave rooms full of clocks immediately|Clocks supposedly have the ability to trap the subject.|
-|Going up is safer than going down|Downward movement is associated with danger.|
-|Light colours are supposedly safer than dark colours|Darkness is associated with negative experiences.|
-|If trapped, attempt to wake up|The subject supposedly risks becoming stuck forever.|
-|Dying in the game supposedly means dying IRL|A particularly extreme urban legend.|
-|Encountering an uncomfortable man in a suit means ending the game|One of the recurring warnings.|
+| Rule                                                              | Supposed Meaning                                        |
+| ----------------------------------------------------------------- | ------------------------------------------------------- |
+| Avoid interacting with people encountered in the rooms            | They might supposedly be evil or deceptive.             |
+| Leave rooms full of clocks immediately                            | Clocks supposedly have the ability to trap the subject. |
+| Going up is safer than going down                                 | Downward movement is associated with danger.            |
+| Light colours are supposedly safer than dark colours              | Darkness is associated with negative experiences.       |
+| If trapped, attempt to wake up                                    | The subject supposedly risks becoming stuck forever.    |
+| Dying in the game supposedly means dying IRL                      | A particularly extreme urban legend.                    |
+| Encountering an uncomfortable man in a suit means ending the game | One of the recurring warnings.                          |
 
-Waking the Subject
+### Waking the Subject
 
 - One version of the rules claims the guide should shake the subject awake if they cannot wake them.
 - The article explicitly warns against this.
