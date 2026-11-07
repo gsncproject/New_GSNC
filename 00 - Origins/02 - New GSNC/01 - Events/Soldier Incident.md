@@ -3,7 +3,8 @@
 - [[Veronique N]]
 - [[Neele J]]
 - [[Joline F]]
-- 
+- [[Arthur Lionel Brown (pers. Inv.)]]
+- [[Red Door Yellow Door]] 
 ## 2026-11-06
 BRO WHAT THE ACTUAL FUCK HAPPENED YESTERDAY????
 
