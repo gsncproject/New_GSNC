@@ -89,4 +89,4 @@ The article recommends avoiding the game with people experiencing anxiety or pan
 	- TikTok.
 - Its different names are likely part of how the game evolved and spread between communities.
 
-**Sources**: https://ihorror.com/red-door-yellow-door-any-other-color-door/
+**Sources**: [Red Door, Yellow Door](https://ihorror.com/red-door-yellow-door-any-other-color-door/)
