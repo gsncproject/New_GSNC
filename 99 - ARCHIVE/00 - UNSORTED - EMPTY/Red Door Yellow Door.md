@@ -56,29 +56,21 @@
 - **Darkness**: Reduced external stimulation.
 - **Fatigue**: Often played late at night.
 - **Suggestion**: The guide asks questions that assume the environment already exists.
-
-Leading Questions
-
+### Leading Questions
 There’s an important difference between:
-
 - “Do you see a door?”
 - “What colour is the door?”
 
 The second question already assumes that a door exists. This can influence what the subject imagines.
-
-Guided Imagery
-
+### Guided Imagery
 - The brain can produce vivid mental imagery in relaxed and suggestible states.
 - Questions can influence the content of that imagery.
 - The experience can feel like discovering something rather than consciously creating it.
 - This doesn’t automatically mean the subject is lying or deliberately making things up.
-
-05 — Reported Risks
-
+## 05 — Reported Risks
 The article distinguishes paranormal folklore from actual psychological risks.
 
 Potential risks mentioned:
-
 - Panic attacks.
 - Sleep-paralysis-like sensations.
 - Nightmares.
@@ -86,21 +78,15 @@ Potential risks mentioned:
 - Distressing or overwhelming imagery.
 
 The article recommends avoiding the game with people experiencing anxiety or panic attacks, stopping if someone becomes distressed, and bringing them out gently.
-
-06 — Origins & History
-
+## 06 — Origins & History
 - No reliable single origin has been established.
 - Despite claims of ancient folklore or ancient ritual origins, the article says there is no evidence supporting those claims.
 - It appears to be a modern sleepover game transmitted through word of mouth.
 - Later versions spread through:  
-      
-    
-
-- Internet forums.
-- Creepypasta websites.
-- YouTube.
-- TikTok.
-
+	- Internet forums.
+	- Creepypasta websites.
+	- YouTube.
+	- TikTok.
 - Its different names are likely part of how the game evolved and spread between communities.
 
 07 — Important Distinction
