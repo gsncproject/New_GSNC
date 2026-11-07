@@ -5,16 +5,12 @@
 >Red Door, Yellow Door (also known as Doors of the Mind, Black Door, White Door, or basically any colour combination) is a supposedly paranormal sleepover game involving guided visualisation, a trance-like state, and exploring rooms and doors inside one’s mind.
 
 ## 01 — What Is It?
-
 - A game involving 2 people: a guide and a subject.
 - The subject supposedly enters a trance and explores a mental environment consisting of rooms, corridors, and doors.
 - The guide asks questions about what the subject sees and directs them through the environment.
 - Different versions of the game have different names and rules, but the basic mechanics remain pretty similar.
-
-02 — How to Play (According to the Article)
-
-Setup
-
+## 02 — How to Play (According to the Article)
+### Setup
 1. The guide sits cross-legged on the floor with a pillow in their lap.
 2. The subject lies down with their head resting in the guide’s lap.
 3. The subject raises their hands into the air.
@@ -22,26 +18,17 @@ Setup
 5. Both repeatedly chant: “Red Door, Yellow Door, Any Other Colour Door.”
 6. Once the subject supposedly enters the trance and begins seeing a room, they lower their arms.
 7. The chanting stops.
-
-Entering the Mental Environment
-
+### Entering the Mental Environment
 - The guide starts asking questions about the room the subject is supposedly standing in.
 - Questions can involve:  
-      
-    
-
-- What colour the doors are.
-- How the subject feels about the doors.
-- What is behind them.
-- Whether the subject should enter another room.
-
+	- What colour the doors are.
+	- How the subject feels about the doors.
+	- What is behind them.
+	- Whether the subject should enter another room.
 - The subject describes what they experience while the guide continues asking questions.
 - Other people present are supposed to remain silent.
 - The guide decides when to end the session.
-
-03 — Supposed Rules & Dangers
-
-[!warning] These are folklore/game rules, NOT established paranormal facts.
+## 03 — Supposed Rules & Dangers
 
 |   |   |
 |---|---|
