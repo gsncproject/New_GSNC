@@ -1,7 +1,7 @@
-- #gsnc 
+#gsnc 
 
-- # GSNC Sources
-- ## Video sources
+# GSNC Sources
+## Video sources
 - [Sam and Colby: Villisca Axe Murder House](https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46)
 - [Sam and Colby: Pendle Hill](https://youtu.be/MF1mHV9gXVw)
 - [Sam and Colby: Cresson Asylum](https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9)
@@ -55,3 +55,10 @@
 - [TikTok: Poveglia Attachment](https://vm.tiktok.com/ZGdCVp95K/)
 - [TikTok: Life Path Numbers (Sam, Colby, Celina and Kris)](https://vm.tiktok.com/ZGdCqwUqR/)
 - [Red Door, Yellow Door](https://ihorror.com/red-door-yellow-door-any-other-color-door/)
+- [George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
+- [William J. Hynes & William G. Doty - Mythical Trickster Figures: Contours, Contexts, and Criticisms](https://www.jstor.org/stable/jj.30297345)
+- [“Tricksters: An Overview”](https://www.encyclopedia.com/environment/encyclopedias-almanacs-transcripts-and-maps/tricksters-overview)
+- [Encyclopedia of the Great Plains - “Trickster”](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
+- [Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
+- [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
+- [V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272) 
