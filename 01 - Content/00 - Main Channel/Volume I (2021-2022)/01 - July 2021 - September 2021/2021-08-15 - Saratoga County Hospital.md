@@ -18,8 +18,6 @@
 >- They scare a group of guys
 >———
 >**Patterns**:
->- [[Maybe]]
->- [[Leave]]
 
 ## Facts:
 - It was a hospital for tuberculosis.
