@@ -55,22 +55,9 @@ A figure originating in mythology and folklore, commonly associated with decepti
 ## Sources & Research Notes
 [George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
 [William J. Hynes & William G. Doty - Mythical Trickster Figures: Contours, Contexts, and Criticisms](https://www.jstor.org/stable/jj.30297345)
+[“Tricksters: An Overview”](https://www.encyclopedia.com/environment/encyclopedias-almanacs-transcripts-and-maps/tricksters-overview)
 
-
-“Tricksters: An Overview”
-Why this source matters:  
-A general overview of tricksters as mythological figures that may be human, animal, divine, or otherwise culturally situated.
-
-Used for: The introductory definition and examples of trickster behavior.
-
-Encyclopedia of the Great Plains — “Trickster”
-
-[https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
-
-Why this source matters:  
-Provides a regional and culturally grounded discussion of trickster traditions, including figures such as Coyote, Rabbit, Raven, and Iktomi.
-
-Used for: Cultural context, boundary-crossing, social disruption, and the importance of not flattening Indigenous traditions into one universal category.
+[Encyclopedia of the Great Plains - “Trickster”](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
 
 Yancey Orr & Raymond Orr (2022) — “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”
 
