@@ -52,14 +52,9 @@ Those terms describe different concepts, and an experience involving deception o
 ## Glossary Definition
 Trickster (Mythological / Paranormal Interpretive Concept):  
 A figure originating in mythology and folklore, commonly associated with deception, cleverness, unpredictability, ambiguity, transformation, and the disruption of established boundaries. In paranormal literature, the trickster archetype is sometimes used to interpret allegedly deceptive or confusing anomalous experiences. This interpretation does not establish the existence of a distinct paranormal trickster entity.
+## Sources & Research Notes
 
-Sources & Research Notes
-
-George P. Hansen —
-
-The Trickster and the Paranormal
-
-[https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
+[George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
 
 Why this source matters:  
 THE MOST RELEVANT SOURCE FOR THE PARANORMAL SIDE!! Hansen examines the relationship between the trickster archetype and paranormal phenomena, connecting trickster-like characteristics with anomalous experiences and situations.
