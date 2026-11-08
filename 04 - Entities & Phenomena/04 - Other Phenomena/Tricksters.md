@@ -60,8 +60,7 @@ A figure originating in mythology and folklore, commonly associated with decepti
 
 [Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
 
-Why this source matters:  
-An academic article examining deception in Indigenous trickster stories and its parallels with scientific experimental methods.
+ academic article examining deception in Indigenous trickster stories and its parallels with scientific experimental methods.
 
 Used for: Understanding deception as a cultural and methodological concept, rather than automatically treating it as evidence of supernatural activity.
 
