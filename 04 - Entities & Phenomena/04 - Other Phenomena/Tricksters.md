@@ -17,6 +17,6 @@ In paranormal research and literature, trickster may also be used as an interpre
 - Disruption of expectations
 **Sources**:
 - [George P. Hansen — The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
-- William J. Hynes & William G. Doty — Mythical Trickster Figures
+- [William J. Hynes & William G. Doty — Mythical Trickster Figures](https://www.jstor.org/stable/jj.30297345?utm_source=chatgpt.com)
 - Encyclopedia.com — Tricksters: An Overview
 - Encyclopedia of the Great Plains — Trickster
