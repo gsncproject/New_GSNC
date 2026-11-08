@@ -24,13 +24,6 @@
 >- Kat being targeted
 >———
 >**Patterns**:
->- [[Lady]]
->- [[Me]]
->- [[You know]]
->- [[Basement]]
->- [[Stay]]
->- [[Friends]]
->- [[Time]]
 
 - First video with Celina 
 - Tourguide Michelle says that Fort Henry made her believe

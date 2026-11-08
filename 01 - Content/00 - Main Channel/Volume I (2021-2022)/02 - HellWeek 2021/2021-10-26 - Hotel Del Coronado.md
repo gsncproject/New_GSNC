@@ -16,12 +16,6 @@
 >- They figure that the death of Kate Morgan has got to be a murder and not a suicide.
 >———
 >**Patterns**:
->- [[It‘s me]]
->- [[Fire]]
->- [[Me]]
->- [[Four]]
->- [[Screams]]
->- [[Below]]
 
 **Tourguide**: If you go looking for things they find you. 
 

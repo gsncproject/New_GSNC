@@ -28,10 +28,6 @@
 >- Throughout the investigation they were pointed in different directions as to who the killer might be/is
 >———
 >Patterns:
->- [[Me]]
->- [[One]]
->- [[Remember]]
->- [[You know]]
 
 - Seth explains that he felt, as they went into the childrens bedroom, backpain like he did at the Conjuring House when he got his attachment.
 	- Sam and Colby recognize that this is what Kat felt back at the Queen Anne Hotel…

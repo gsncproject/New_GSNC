@@ -24,11 +24,6 @@
 >- Timmy is entity merged from **all kids** that died at Waverly 
 >———
 >**Patterns**:
->- [[Seven]] / [[One]] / [[Five]]
->- [[Music]] (The Music Box was the most active)
->- [[Me]]
->- [[Screams]]
->- [[Leave]]
 
 - Waverly was a tuberculosis hospital, then a nursing home and now one of the most known haunted places in the world.
 	- Known for shadow figures.
