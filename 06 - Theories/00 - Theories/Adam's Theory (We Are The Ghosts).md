@@ -2,6 +2,8 @@
 
 (*This theory is completely interpreted by myself, based on what [[Adam Kimmel]] said in [[2024-06-16 - Indiana State Sanatorium]].*)
 # Adam‘s Theory (We Are The Ghosts)
+**Related Notes**:
+- [[Stone-Tape Theory]] 
 The idea behind this hypothesis is that, what we consider a ghostly haunting, doesn‘t come from actual ghosts, but ourselves. Specifically from other versions of ourselves displaced across time, memory or reality. Ghosts aren‘t dead people who hadn‘t passed on yet, but its a living consciousness bleeding into moments they don‘t belong to yet.
 
 Why of other versions of ourselves? In the [[Multiverses]] theory you have to think of a tree with lots of different branches, and each of these branches represent another time like, aka another version of one another.
