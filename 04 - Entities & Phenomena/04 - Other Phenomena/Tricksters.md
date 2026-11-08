@@ -20,21 +20,17 @@ This can include reports where an alleged presence:
 - Makes an experience difficult to interpret.
 
 George P. Hansen’s The Trickster and the Paranormal is especially relevant here because he explores connections between the trickster archetype and paranormal phenomena.
-
-BUT IMPORTANT: This does NOT mean that paranormal trickster entities have been scientifically proven to exist. The trickster concept is an interpretation and theoretical framework, not confirmation that an experience was caused by a supernatural being.
-
-Common Trickster Characteristics
-
+## Common Trickster Characteristics
 Based on the mythology and folklore sources, tricksters may display some combination of:
 
-Deception: Misleading others or creating false impressions.
-Cleverness: Using intelligence, wit, or manipulation to achieve something.
-Ambiguity: Being difficult to classify as good, evil, helpful, or harmful.
-Boundary-crossing: Breaking social, moral, or cosmic rules.
-Transformation: Changing appearance, identity, or form.
-Disruption: Turning established situations upside down.
-Creation & destruction: Sometimes creating something new while simultaneously causing chaos.
-Paradox: Acting intelligently and foolishly, heroically and selfishly, or helpfully and destructively.
+- Deception: Misleading others or creating false impressions.
+- Cleverness: Using intelligence, wit, or manipulation to achieve something.
+- Ambiguity: Being difficult to classify as good, evil, helpful, or harmful.
+- Boundary-crossing: Breaking social, moral, or cosmic rules.
+- Transformation: Changing appearance, identity, or form.
+- Disruption: Turning established situations upside down.
+- Creation & destruction: Sometimes creating something new while simultaneously causing chaos.
+- Paradox: Acting intelligently and foolishly, heroically and selfishly, or helpfully and destructively.
 
 NOT EVERY TRICKSTER HAS EVERY SINGLE TRAIT!! These characteristics vary across cultures and traditions.
 
