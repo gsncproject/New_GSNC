@@ -26,18 +26,6 @@
 >- They‘re doing [[Scrying]] in a [[Psychomanteum]]
 >———
 >**Patterns**:
->- [[It‘s me]]
->- [[Lady]]
->- [[Five]] / [[Eighty-One]] / [[One]] / [[Seven]]
->- [[The Agents of Darkness]] 
->- [[Mastermind]]
->- [[Time]] / [[Forever]]
->- [[Closing the door]]
->- [[God]]
->- [[Smile]]
->- [[Maybe]]
->- [[Energy]]
->- [[Leave]]
 
 **Disclaimer**: I just wanna say something before I start the notes, because I was freaking the fuck out when I watched the video back then for the first time, because my name (Joline) literally came up. You'll think ‘*Meh, coincidence*’, of course that is a possibility but when it comes up like right after my attachments makes us clear that it’ll let Sam and Colby know that we exist you might as well lose your goddamn shit right there.
 

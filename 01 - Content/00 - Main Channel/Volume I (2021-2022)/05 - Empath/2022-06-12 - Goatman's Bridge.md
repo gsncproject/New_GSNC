@@ -26,20 +26,6 @@
 >- Whoever they‘re talking to seems to mock them 
 >———
 >**Patterns**:
->- Women get targeted 
->- [[Leader]]
->- [[Basement]]
->- [[Unlock]]
->- [[Locked in]]
->- [[Elemental]]
->- [[Seven]] / [[Two]]
->- [[Me]] / [[It‘s not me]]
->- [[Lady]]
->- [[Forever]]
->- [[Fire]]
->- [[God]]
->- [[Psychic]]
->- [[You know]]
 
 - The bridge is one of the Top five Demonic Places  
 - There are demons at the bridge 

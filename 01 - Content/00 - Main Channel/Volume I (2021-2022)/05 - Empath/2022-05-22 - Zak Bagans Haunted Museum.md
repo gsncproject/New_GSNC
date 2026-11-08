@@ -21,9 +21,6 @@
 >- Stas gets targeted the most after the Estes Method in the chair.
 >———
 >**Patterns**:
->- [[Thirteen]] / [[Fourteen]] / [[Seven]]
->- [[Relax]]
->- [[Stay]]
 
 - Just as they were introducing themselves a door slams shut 
 

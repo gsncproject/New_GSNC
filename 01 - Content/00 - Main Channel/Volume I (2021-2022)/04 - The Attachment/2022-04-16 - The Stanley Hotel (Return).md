@@ -26,14 +26,6 @@
 >- (Possibility of the Minions starting there)
 >———
 >**Patterns**:
->- [[Music]]
->- [[Me]] / [[It‘s been me]] / [[I‘ve been here]]
->- [[Friend]] / [[Friends]]
->- It mostly responds to Sam 
->- [[Nine]] / [[Four]] / [[Twenty]]
->- [[Relax]] / [[Breathe]]
->- [[Basement]]
->- [[Energy]]
 
 Amanda thinks that Sam had an attachment pre-Conjuring House (1) because it was already with him as she met them for the first time.
 
