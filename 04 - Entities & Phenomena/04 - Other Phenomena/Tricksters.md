@@ -56,12 +56,9 @@ A figure originating in mythology and folklore, commonly associated with decepti
 [George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
 [William J. Hynes & William G. Doty - Mythical Trickster Figures: Contours, Contexts, and Criticisms](https://www.jstor.org/stable/jj.30297345)
 [“Tricksters: An Overview”](https://www.encyclopedia.com/environment/encyclopedias-almanacs-transcripts-and-maps/tricksters-overview)
-
 [Encyclopedia of the Great Plains - “Trickster”](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
 
 Yancey Orr & Raymond Orr (2022) — “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”
-
-[https://doi.org/10.1086/719574](https://doi.org/10.1086/719574)
 
 Why this source matters:  
 An academic article examining deception in Indigenous trickster stories and its parallels with scientific experimental methods.
