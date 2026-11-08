@@ -60,25 +60,8 @@ A figure originating in mythology and folklore, commonly associated with decepti
 
 [Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
 
- academic article examining deception in Indigenous trickster stories and its parallels with scientific experimental methods.
+[David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
 
-Used for: Understanding deception as a cultural and methodological concept, rather than automatically treating it as evidence of supernatural activity.
-
-David A. Leeming —
-
-World Mythology: A Very Short Introduction
-
-, “The Trickster”
-
-[https://doi.org/10.1093/actrade/9780197548264.003.0005](https://doi.org/10.1093/actrade/9780197548264.003.0005)
-
-Why this source matters:  
-Provides a broader mythology overview and discusses trickster figures across multiple traditions.
-
-Used for: Examples, creation and destruction themes, transformation, and the role of tricksters in introducing change.
-
-V. Nzingha Gaffin (2010) — “Trickster Figure,”
-
-Encyclopedia of Identity
+V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity
 
 [https://doi.org/10.4135/9781412979306.n272](https://doi.org/10.4135/9781412979306.n272)
