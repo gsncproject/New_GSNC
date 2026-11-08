@@ -53,13 +53,10 @@ Those terms describe different concepts, and an experience involving deception o
 Trickster (Mythological / Paranormal Interpretive Concept):  
 A figure originating in mythology and folklore, commonly associated with deception, cleverness, unpredictability, ambiguity, transformation, and the disruption of established boundaries. In paranormal literature, the trickster archetype is sometimes used to interpret allegedly deceptive or confusing anomalous experiences. This interpretation does not establish the existence of a distinct paranormal trickster entity.
 ## Sources & Research Notes
-[George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
-[William J. Hynes & William G. Doty - Mythical Trickster Figures: Contours, Contexts, and Criticisms](https://www.jstor.org/stable/jj.30297345)
-[“Tricksters: An Overview”](https://www.encyclopedia.com/environment/encyclopedias-almanacs-transcripts-and-maps/tricksters-overview)
-[Encyclopedia of the Great Plains - “Trickster”](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
-
-[Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
-
-[David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
-
-[V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272)
+- [George P. Hansen - The Trickster and the Paranormal](https://www.everand.com/book/523929004/The-Trickster-and-the-Paranormal)
+- [William J. Hynes & William G. Doty - Mythical Trickster Figures: Contours, Contexts, and Criticisms](https://www.jstor.org/stable/jj.30297345)
+- [“Tricksters: An Overview”](https://www.encyclopedia.com/environment/encyclopedias-almanacs-transcripts-and-maps/tricksters-overview)
+- [Encyclopedia of the Great Plains - “Trickster”](https://plainshumanities.unl.edu/encyclopedia/doc/egp.fol.044.html)
+- [Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
+- [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
+- [V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272) 
