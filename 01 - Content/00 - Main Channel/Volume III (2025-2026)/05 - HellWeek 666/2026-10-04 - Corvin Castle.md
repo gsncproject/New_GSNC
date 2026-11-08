@@ -24,15 +24,6 @@
 >- The Estes Method 
 >———
 >**Patterns**:
->- [[Maybe]]
->- [[Me]]
->- [[Move]]
->- [[Friend]]
->- [[Four]] / [[Three]]
->- [[Free]]
->- [[Wall]]
->- [[Hole]]
->- [[Home]]
 
 
 FIRST VIDEO OF HELLWEEK LETSSSS GOOOOOOOOOOOOOOOO (gunna be so fucking stressed AHHH)
