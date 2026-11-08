@@ -1,26 +1,23 @@
 #phenomena #gsnc 
 
-What even IS a Trickster?
-
+# Trickster
+## What even IS a Trickster?
 OKAY SO!! A trickster is basically a figure found in mythology, folklore, and cultural traditions that is known for being deceptive, clever, unpredictable, chaotic, or constantly messing with established rules and boundaries.
 
 Tricksters can be gods, spirits, humans, or animals depending on the culture. Some examples are Coyote, Loki, Hermes, Anansi, Raven, and Iktomi.
 
 They aren’t necessarily evil!! A trickster can be funny, intelligent, destructive, creative, helpful, or all of those things at once. Their whole thing is often that they’re difficult to categorize and don’t behave according to normal expectations.
-
-Tricksters & The Paranormal
-
+## Tricksters & The Paranormal
 THIS IS WHERE IT GETS INTERESTING!!
 
 In paranormal research, the term trickster is sometimes used as an interpretive framework for supposedly deceptive, confusing, misleading, or unpredictable paranormal activity.
 
 This can include reports where an alleged presence:
-
-Appears to imitate someone or something.
-Gives misleading or contradictory information.
-Creates confusion around what investigators experience.
-Seems to behave unpredictably or playfully.
-Makes an experience difficult to interpret.
+- Appears to imitate someone or something.
+- Gives misleading or contradictory information.
+- Creates confusion around what investigators experience.
+- Seems to behave unpredictably or playfully.
+- Makes an experience difficult to interpret.
 
 George P. Hansen’s The Trickster and the Paranormal is especially relevant here because he explores connections between the trickster archetype and paranormal phenomena.
 
