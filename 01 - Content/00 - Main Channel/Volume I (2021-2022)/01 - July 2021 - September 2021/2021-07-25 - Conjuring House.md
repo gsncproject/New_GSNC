@@ -25,24 +25,6 @@
 >- After the investigation in the basement the door was locked as Sam and Colby went back upstairs 
 >———
 >**Patterns**:
->- [[Gate]] / [[Gateway]] / [[Portal]] / [[Modern Gate]] / [[Door]]
->- [[Freedom]] / [[Liberty]] / [[Free]] / [[Immortal]]
->- [[Prisoner]] / [[Slaves]]
->- [[Six]] / [[Seven]]
->- [[Focus]] / [[Concentrate]]
->- [[Limit]]
->- [[It‘s me]]
->- [[Mommy]]
->- [[Monument]]
->- [[It‘s time]]
->- [[Unlock]]
->- [[Close the door]] 
->- [[It‘s you]]
->- [[Move]]
->- [[To the left]]
->- [[Casket]]
->- [[God]]
->- [[Evil]]
 
 ### History:
 - The story of the first Conjuring Movie originates from that house. Meaning that almost everything that happened in the movie happened in real life too. 

@@ -21,15 +21,6 @@
 >- Seth kept seeing shadow figures 
 >———
 >**Patterns**:
->- Lots of symbols are hidden all around the house like the Eye of Horus 
->- [[Seven]]
->- [[Me]]
->- [[Move on]] / [[Leave]]
->- [[It‘s time]]
->- [[Relax]]
->- [[Music]]
->- [[Smile]] 
->- [[Maybe]]
 
 - The Johnsons built the house. 
 - Sara Johnson died shortly after the house was finished and John Johnson immediately sold it.  

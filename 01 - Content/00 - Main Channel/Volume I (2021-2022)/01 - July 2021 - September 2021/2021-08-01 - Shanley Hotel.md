@@ -28,9 +28,6 @@
 >- The ball in the Murder Room moved a second time while Colby asked a question
 >———
 >**Patterns**:
->- [[Me]]
->- [[King]] / [[Owner]]
->- [[Leave]]
 
 - The hotel has a rich mafia history
 
