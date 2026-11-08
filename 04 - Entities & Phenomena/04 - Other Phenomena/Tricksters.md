@@ -62,6 +62,4 @@ A figure originating in mythology and folklore, commonly associated with decepti
 
 [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
 
-V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity
-
-[https://doi.org/10.4135/9781412979306.n272](https://doi.org/10.4135/9781412979306.n272)
+[V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272)
