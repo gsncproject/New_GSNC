@@ -22,17 +22,6 @@
 >- They‘ll do Scrying in a DIY-Psychomanteum
 >———
 >**Patterns**:
->- [[Three]] & [[Four]] / [[Seven]] / [[Eight-Hundred]] / [[Thirty]] / [[Five]] / [[Six]]
->- [[Move on]]
->- [[Time]] / [[Forever]]
->- [[Unlock]]
->- [[Music]]
->- [[Focus]]
->- [[Me]]
->- [[Stuck]]
->- [[Door]]
->- [[Dead]]
->- [[You know]]
 
 - Room 11 is the most haunted room 
 They wanna do the Estes Method in the Rocking Chair in Room 4

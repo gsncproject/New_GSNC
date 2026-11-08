@@ -21,12 +21,6 @@
 >- They drew a gun-adjecent and knife-adjecent drawing with the Drawing Planchette 
 >———
 >**Patterns**:
->- [[Sacer Rez]] / [[Oremace]]
->- [[Casket]]
->- [[It is me]] / [[Me]]
->- [[Five]]
->- [[God]]
->- [[Energy]]
 
 Hauntings: Stacie (died from „Unknown Causes“)
 
