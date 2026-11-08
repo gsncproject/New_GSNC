@@ -7,8 +7,7 @@ A mythological and folkloric figure characterized by deception, wit, ambiguity, 
 
 In paranormal research and literature, trickster may also be used as an interpretive framework for allegedly deceptive, confusing, or imitative phenomena. This usage does not establish the existence of paranormal trickster entities.
 
-Commonly associated characteristics:
-
+**Commonly associated characteristics**:
 - Deception and trick-playing
 - Ambiguity and paradox
 - Shapeshifting or transformation
@@ -18,7 +17,6 @@ Commonly associated characteristics:
 - Disruption of expectations
 
 Sources:
-
 - George P. Hansen — The Trickster and the Paranormal
 - William J. Hynes & William G. Doty — Mythical Trickster Figures
 - Encyclopedia.com — Tricksters: An Overview
