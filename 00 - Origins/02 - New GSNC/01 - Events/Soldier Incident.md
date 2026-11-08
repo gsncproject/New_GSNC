@@ -37,6 +37,7 @@ The whole thing gave us GÄNSEHODEN (as me and my sister say) and I genuinely do
 I know this doesnt automatically prove anything paranormal and there could be other explanations for the cold or for what Vero experienced, but the combination of the name, the initials, the historical connection, the family connection and the timing of the cold was just INSANE to experience.
 
 I NEED TO DOCUMENT THIS BEFORE I FORGET ANYTHING BECAUSE WHAT THE ACTUAL FUCK WAS THAT EVEN?????
+
 **Details to verify / preserve**
 - Exact date reference: October 20, 1935
 - Name initially reported: Thomas Lonell
