@@ -33,16 +33,6 @@
 >- The camera light turns off, and after Sam asks it to do it again it turns off again 
 >———
 >**Patterns**:
->- [[Twenty-Seven]] / [[Thirteen]] / [[Three]] / [[Two]]
->- [[Birds]]
->- [[Monument]]
->- [[Devil]]
->- [[Befriend]]
->- [[Sallie]]
->- [[Free]]
->- [[Me]]
->- [[Trapped]] / [[Leave]]
->- [[Home]]
 
 - Quackity kinda wants to leave immediately
 	- He believes in ghostiesss

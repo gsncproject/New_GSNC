@@ -23,14 +23,6 @@
 >- Colby hears something mimicking Sam‘s voice 
 >———
 >**Patterns**:
->- [[Monument]] / [[Tomb]] / [[Tombstone]] / [[Marker]]
->- [[Ninety]] / [[Twenty-Seven]]
->- [[Burn]]
->- [[Forever]]
->- [[Below]]
->- [[Movement]]
->- [[Fell]]
->- [[Release]]
 
 - The school is one of the most paranormal spots in Iowa, but no one knows why.    
 - Sam and Colby bought it.

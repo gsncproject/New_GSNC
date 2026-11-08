@@ -17,11 +17,6 @@
 >- Sam suspects that there might be something like a puppeteer 
 >———
 >**Patterns**:
->- [[Me]]
->- Drowing sounds 
->- [[Screams]] 
->- [[Upstairs]]
->- [[Evil]]
 
 They‘re in a goddamn thunderstorm
 
