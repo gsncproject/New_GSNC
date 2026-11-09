@@ -11,4 +11,5 @@
 ## Red Door, Yellow Door
 **How it works (simply)**: The Red Door, Yellow Door game is a hypnosis-based activity where one participant guides another into a trance-like state. The guide instructs the participant to visualize a red door and a yellow door, leading to a mysterious “Mind Palace.” The participant explores this imaginary space while the guide asks questions about their surroundings.
 **Why and Where?**: This game as well, did Sam and Colby play at some point. 
-- I‘d wanna play it with them at 
+- I‘d wanna play it with them at [[Haunted School]].
+	- **Why [[Haunted School]]?** Well, it‘s obviously a haunted school, and whenever me or my friends mention Sam and Colby the activity there goes cray cray. Who/Whatever haunts there specifically knows who they are and they‘re aware of everything surrounding Sam and Colby. (*And because when we (me and friends) dd*)
