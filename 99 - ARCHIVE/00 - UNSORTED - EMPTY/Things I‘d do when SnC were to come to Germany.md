@@ -10,3 +10,5 @@
 	- **Why [[Parade Platz]]?** Parade Platz is known to have witnessed battles, executions, sieges, and so on. And I think, due to it being one of the places where hauntings are most plausable due to its history, it‘d be a great idea to try it there.
 ## Red Door, Yellow Door
 **How it works (simply)**: The Red Door, Yellow Door game is a hypnosis-based activity where one participant guides another into a trance-like state. The guide instructs the participant to visualize a red door and a yellow door, leading to a mysterious “Mind Palace.” The participant explores this imaginary space while the guide asks questions about their surroundings.
+**Why and Where?**: This game as well, did Sam and Colby play at some point. 
+- I‘d wanna play it with them at 
