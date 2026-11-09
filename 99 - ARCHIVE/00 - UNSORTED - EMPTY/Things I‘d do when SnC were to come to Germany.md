@@ -7,4 +7,4 @@
 - I‘d want to play it with them at [[Haunted School]], [[Hohes Arsenal]] and [[Parade Platz]].
 	- **Why [[Haunted School]]?** Well, it‘s obviously a haunted school, and whenever me or my friends mention Sam and Colby the activity there goes cray cray. Who/Whatever haunts there specifically knows who they are and they‘re aware of everything surrounding Sam and Colby.
 	- **Why [[Hohes Arsenal]]?** I picked it, because of an event that happened back in 2023/24 or something, that connects to Sam and Colby. 
-	- **Why [[Parade Platz]]?** Parade Platz is known to have witnessed batt
+	- **Why [[Parade Platz]]?** Parade Platz is known to have witnessed battles, executions, sieges, and so on. And I think, due to it being one of the places where hauntings are most plausable due to its history, it‘d be a great idea to try it there.
