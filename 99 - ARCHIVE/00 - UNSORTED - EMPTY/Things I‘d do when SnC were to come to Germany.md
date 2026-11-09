@@ -23,4 +23,5 @@
 		3. At [[Neuwerk]] as well, I‘d split even more. Sam/Colby and me/Vero/Neele/whoev. at [[Garnisons Friedhof]] (near the NOK) while Sam/Colby and me/Vero/Neele/whoev. stay in the [[Parade Platz]] area. 
 		4. A version I‘d really like to see is Sam/Colby and me/Vero/Neele/whoev. being at the [[Tunnel]] while Sam/Colby and me/Vero/Neele/whoev. are at either the Parade Platz area or [[Haunted School]]
 ## Investigation at Hundewiese (old trash throw away spot)
-**How it works (simply)**: 
+**How it works (simply)**: Easy peasy going into Eider Forest, all the way to Borgsteht and then go onto Hundewiese to conduct a normal investigation. The meadow is in the middle of nowhere between Büdelsdorf and Borgsteht and its an open spot in the forest. 
+**Why and Where?**: I think, that the meadow has always felt off but I am too scared to go ther
