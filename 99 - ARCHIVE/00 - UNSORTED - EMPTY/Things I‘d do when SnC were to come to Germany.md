@@ -1,0 +1,3 @@
+#gsnc 
+
+# Ma ideasssssss
