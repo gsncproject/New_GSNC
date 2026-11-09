@@ -22,3 +22,5 @@
 		2. At [[Neuwerk]], I‘d split up even further. Sam/Colby and me/Vero/Neele/whoev. at [[Parade Platz]] while Sam/Colby and me/Vero/Neele/whoev. sit in the courtyard of [[Hohes Arsenal]] or way at Herderschule at the [[Pulverschuppen]] at the water.
 		3. At [[Neuwerk]] as well, I‘d split even more. Sam/Colby and me/Vero/Neele/whoev. at [[Garnisons Friedhof]] (near the NOK) while Sam/Colby and me/Vero/Neele/whoev. stay in the [[Parade Platz]] area. 
 		4. A version I‘d really like to see is Sam/Colby and me/Vero/Neele/whoev. being at the [[Tunnel]] while Sam/Colby and me/Vero/Neele/whoev. are at either the Parade Platz area or [[Haunted School]]
+## Investigation at Hundewiese (old trash throw away spot)
+**How it works (simply)**: 
