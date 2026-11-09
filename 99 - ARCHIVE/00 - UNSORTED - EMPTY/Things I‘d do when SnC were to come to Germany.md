@@ -20,4 +20,4 @@
 	- (*these are just examples of teaming up*)
 		1. At [[Haunted School]] I would wanna do it that Sam and me/Vero/Neele/whoev. sit in our spot at the old building, while Colby and me/Vero/Neele/whoev. go around the back to the new building on the soccer court.
 		2. At [[Neuwerk]], I‘d split up even further. Sam and me/Vero/Neele/whoev. at [[Parade Platz]] while Colby and me/Vero/Neele/whoev. sit in the courtyard of [[Hohes Arsenal]] or way at Herderschule at the [[Pulverschuppen]] at the water.
-		3. At [[Neuwerk]] as well, I‘d sp
+		3. At [[Neuwerk]] as well, I‘d split even more. Sam and me/Vero/Neele/whoev. at [[Garnisons Friedhof]] (near the NOK) while Colby and me/Vero/Neele/whoev. stay in t
