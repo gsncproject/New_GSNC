@@ -14,4 +14,5 @@
 - I‘d wanna play it with them at [[Haunted School]].
 	- **Why [[Haunted School]]?** Well, it‘s obviously a haunted school, and whenever me or my friends mention Sam and Colby the activity there goes cray cray. Who/Whatever haunts there specifically knows who they are and they‘re aware of everything surrounding Sam and Colby. (*And because when we (me and friends) did the game at H, we only ever saw a tall shadow figure standing in corners*)
 ## Dual Estes Method (advanced)
-**How it works (simply**
+**How it works (simply)**: Two people go under the [[Estes Method]] (preferably Sam and Colby), while say me and Vero „keep“ an eye on them.
+**Why and Where?**: 
