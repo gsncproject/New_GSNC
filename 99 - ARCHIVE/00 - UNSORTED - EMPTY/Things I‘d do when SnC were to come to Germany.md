@@ -16,4 +16,6 @@
 ## Dual Estes Method (advanced)
 **How it works (simply)**: Two people go under the [[Estes Method]] (preferably Sam and Colby), while say me and Vero „keep“ an eye on them.
 **Why and Where?**: It‘s to see whether they get the same responses or something different in anyway but taken up a notch.
-- I‘d wanna play it with them at [[Haunted School]], [[Neuwerk]] and [[Tunnel]].
+- I‘d wanna play it with them at [[Haunted School]], [[Neuwerk]] and [[Tunnel]]. But in different mixture.
+	- (*these are just examples of teaming up*)
+		1. At [[Haunted School]] 
