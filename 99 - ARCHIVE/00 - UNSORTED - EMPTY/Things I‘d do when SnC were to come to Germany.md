@@ -24,4 +24,4 @@
 		4. A version I‘d really like to see is Sam/Colby and me/Vero/Neele/whoev. being at the [[Tunnel]] while Sam/Colby and me/Vero/Neele/whoev. are at either the Parade Platz area or [[Haunted School]]
 ## Investigation at Hundewiese (old trash throw away spot)
 **How it works (simply)**: Easy peasy going into Eider Forest, all the way to Borgsteht and then go onto Hundewiese to conduct a normal investigation. The meadow is in the middle of nowhere between Büdelsdorf and Borgsteht and its an open spot in the forest. 
-**Why and Where?**: I think, that the meadow has always felt off but I am too scared to go ther
+**Why and Where?**: I think, that the meadow has always felt off but I am too scared to go there by myself. However, I‘d investigate the entire meadow, up until we crash into SH.Z.
