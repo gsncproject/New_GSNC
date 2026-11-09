@@ -62,3 +62,4 @@
 - [Yancey Orr & Raymond Orr (2022) - “Deception-based knowledge in Indigenous and scientific societies: American Indian tricksters and experimental research designs”](https://doi.org/10.1086/719574)
 - [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
 - [V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272) 
+- [Picture Game (Chant)](https://www.scaryforkids.com/picture-game/)
