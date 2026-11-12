@@ -23,3 +23,5 @@
 		- And Colby counters with that the ship was their first haunted experience. Damnit.
 			- [[Jackie-Theory]] gets pushed even further:
 				- In [[2022-04-16 - The Stanley Hotel (Return)]] during the final Estes Method Colby reports hearing breathing through the headphones.
+					- *Could be interpreted as Jackie gasping for air*
+				- Sam immediately kills the assumption by saying it’s “a bit of a stretch”.
