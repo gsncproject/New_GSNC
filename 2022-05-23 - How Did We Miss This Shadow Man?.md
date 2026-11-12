@@ -18,3 +18,5 @@
 	- **TB: to when they were at the ship and Aaron did the secret recording.** 
 		- Sam was acting weird, like in a way that was worrying his friends. Jake specifically even asks him if Sam zoned out or something.
 		- Colby now says Sam was kinda just sitting there rocking back and forth and just staring straight ahead.
+			- It was their first time at the ship when that incident occurred.
+		- Sam points out that just recently in [[Stanely]]
