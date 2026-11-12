@@ -40,4 +40,5 @@
 	- [[2022-04-16 - The Stanley Hotel (Return)]] there are orbs too but about 90% of it could just be dust particles.
 	- Okay wow there’s more orbs and shadows from vids I can’t identify. lol.
 5. **OSP compared to Conjuring**
-	- At [[Ohio State Reformatory]] 
+	- At [[Ohio State Reformatory]] during Sam’s Estes Methods he says “shining” and “light” and “from the basement“
+		- At [[2021-07-25 - Conjuring House]] as they were in the basement alone 
