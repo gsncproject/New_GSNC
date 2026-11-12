@@ -1,1 +1,4 @@
-#v
+#reactchannel #gsnc #theattachment 
+
+>[!Basic Info]
+>
