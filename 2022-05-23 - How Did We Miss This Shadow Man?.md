@@ -13,4 +13,4 @@
 		- At [[The Queen Mary Ship]] there is an entity of a little girl haunting the second class pool area named Jackie.
 		- (provided by the clip they’re watching) *Jackie (Jacqueline Torin) A little girl who is said to be 5 or 6 years old and believed to have drowned in the second class pool. […] Jackie can be heard singing, laughing, giggling, calling for her mommy and daddy […]*
 		- *[…] they have heard her plaintively calling for her mommy.*
-		- 
+			- In the [[2021-07-25 - Conjuring House]] during the Estes Method [[Mommy]] is said.
