@@ -43,7 +43,8 @@
 	- At [[Ohio State Reformatory]] during Sam’s Estes Methods he says “shining” and “light” and “from the basement“
 		- At [[2021-07-25 - Conjuring House]] as they were in the basement alone there was a shining light on the ceiling.
 	- Also at both places the number seven gets mentioned (like at so many other fcking places)
-	- OSP “The biggest guy” / Conj. “Bigger”
-	- OSP “It’s time” / Conj. “It’s time”
-	- OSP “Go!“ / Conj. “Go“
-	- OSP “I’m trying to be free” / Conj. “My […] free
+		- OSP “The biggest guy” / Conj. “Bigger”
+		- OSP “It’s time” / Conj. “It’s time”
+		- OSP “Go!“ / Conj. “Go“
+		- OSP “I’m trying to be free” / Conj. “My […] freedom”
+		- OSP “All” / Conj. “All of them”
