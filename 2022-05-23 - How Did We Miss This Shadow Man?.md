@@ -34,4 +34,4 @@
 		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
 		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
 4. **More at Bellaire than we think?**
-	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Bas
+	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Basement” and “With you” and “Play with me” and “You’re the kind that I want”
