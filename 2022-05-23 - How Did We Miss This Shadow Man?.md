@@ -35,5 +35,6 @@
 		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
 	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Basement” and “With you” and “Play with me” and “You’re the kind that I want”
 4. **Shadows and Orbs… or whatever.**
-	- The RemPod goes off during an investigation while on the left to Seth you can see an orb
+	- The RemPod goes off during an investigation while on the left to Seth you can see an orb (at [[West Virginia State Penitentiary]])
 	- At [[Fairfield Infirmary]] while they were standing in the hallway, while Nate was explaining something there is a shadow like apparition seen behind him in the room.
+	- 
