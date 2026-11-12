@@ -27,4 +27,5 @@
 				- Sam immediately kills the assumption by saying it’s “a bit of a stretch”.
 				- While Colby doesn’t think it’s a stretch.
 	- It could make sense that they have gotten an attachment from the ship due to them filming thirteen videos there. Yelp.
-- 
+2. **Fort Henry Shadow Figure**:
+	- Behind Celina when Sam was shaking the fuck out of a catball, there was a shadow behind her that you could see through the hallway.
