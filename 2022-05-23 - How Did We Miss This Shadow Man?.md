@@ -48,3 +48,5 @@
 		- OSP “Go!“ / Conj. “Go“
 		- OSP “I’m trying to be free” / Conj. “My […] freedom”
 		- OSP “All” / Conj. “All of them”
+
+GUYS WTF U MEAN HOW DO WE SEE ALL YHIS SHIT IN YALLS VIDS?!!? It’s the reason this fcking archive exists, lol🫰🏻
