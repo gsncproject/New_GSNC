@@ -32,4 +32,5 @@
 3. **Sallie House time stamp?**
 	- During the Estes Method in the attic at the [[Bellaire House]], Seth says *23:20* 
 		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
-		- And at the [[Bellaire House]] Kristi
+		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
+4. **More at Bellaire than we think?**
