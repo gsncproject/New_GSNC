@@ -21,3 +21,5 @@
 			- It was their first time at the ship when that incident occurred.
 		- Sam points out that just recently in [[2022-04-16 - The Stanley Hotel (Return)]] Amanda said that his attachment was *before* [[2021-07-25 - Conjuring House]]
 		- And Colby counters with that the ship was their first haunted experience. Damnit.
+			- [[Jackie-Theory]] gets pushed even further:
+				- In [[2022-04-16 - The Stanley Hotel (Return)]] du
