@@ -30,5 +30,6 @@
 2. **Fort Henry Shadow Figure**
 	- Behind Celina when Sam was shaking the fuck out of a catball, there was a shadow behind her that you could see through the hallway.
 3. **Sallie House time stamp?**
-	- During the Estes Method in the attic, Seth says *23:20* 
-		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for t
+	- During the Estes Method in the attic at the [[Bellaire House]], Seth says *23:20* 
+		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
+		- And at the [[Bellaire House]] Kristi
