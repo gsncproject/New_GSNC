@@ -41,4 +41,6 @@
 	- Okay wow there’s more orbs and shadows from vids I can’t identify. lol.
 5. **OSP compared to Conjuring**
 	- At [[Ohio State Reformatory]] during Sam’s Estes Methods he says “shining” and “light” and “from the basement“
-		- At [[2021-07-25 - Conjuring House]] as they were in the basement alone 
+		- At [[2021-07-25 - Conjuring House]] as they were in the basement alone there was a shining light on the ceiling.
+	- Also at both places the number seven gets mentioned (like at so many other fcking places)
+	- 
