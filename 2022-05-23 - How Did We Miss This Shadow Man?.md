@@ -26,4 +26,5 @@
 					- *Could be interpreted as Jackie gasping for air*
 				- Sam immediately kills the assumption by saying it’s “a bit of a stretch”.
 				- While Colby doesn’t think it’s a stretch.
-	- It could make sense that they have gotten an attachment from the ship due to th
+	- It could make sense that they have gotten an attachment from the ship due to them filming thirteen videos there. Yelp.
+- 
