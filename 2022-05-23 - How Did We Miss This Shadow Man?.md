@@ -16,4 +16,5 @@
 			- In the [[2021-07-25 - Conjuring House]] during the Estes Method [[Mommy]] is said.
 	- Also in the [[2021-10-21 - Queen Mary Ship (Return)]] Colby mentions that they’re probably the last people to ever visit the ship, so wouldn’t they (*the entities*) try to attach themselves to them?
 	- **TB: to when they were at the ship and Aaron did the secret recording.** 
-		- Sam was acting weird, like in a way that was worrying his friends.
+		- Sam was acting weird, like in a way that was worrying his friends. Jake specifically even asks him if Sam zoned out or something.
+		- Colby now says Sam was kinda just sitting there rocking back and forth and just staring straight ahead.
