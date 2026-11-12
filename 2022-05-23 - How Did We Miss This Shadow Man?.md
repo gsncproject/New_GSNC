@@ -29,11 +29,10 @@
 	- It could make sense that they have gotten an attachment from the ship due to them filming thirteen videos there. Yelp.
 2. **Fort Henry Shadow Figure**
 	- Behind Celina when Sam was shaking the fuck out of a catball, there was a shadow behind her that you could see through the hallway.
-3. **Sallie House time stamp?**
+3. **Sallie House and Bellaire House?**
 	- During the Estes Method in the attic at the [[Bellaire House]], Seth says *23:20* 
 		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
 		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
-4. **More at Bellaire than we think?**
 	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Basement” and “With you” and “Play with me” and “You’re the kind that I want”
-5. **Sam and Colby missed this at WVP!**
-	- The RemPod goes off during an investigation while on the left to Seth y
+4. **Sam and Colby missed this at WVP!**
+	- The RemPod goes off during an investigation while on the left to Seth you can see an orb
