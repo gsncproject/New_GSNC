@@ -34,5 +34,6 @@
 		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
 		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
 	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Basement” and “With you” and “Play with me” and “You’re the kind that I want”
-4. **Sam and Colby missed this at WVP!**
+4. **Shadows and Orbs… or whatever.**
 	- The RemPod goes off during an investigation while on the left to Seth you can see an orb
+		- 
