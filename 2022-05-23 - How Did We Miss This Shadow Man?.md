@@ -22,4 +22,4 @@
 		- Sam points out that just recently in [[2022-04-16 - The Stanley Hotel (Return)]] Amanda said that his attachment was *before* [[2021-07-25 - Conjuring House]]
 		- And Colby counters with that the ship was their first haunted experience. Damnit.
 			- [[Jackie-Theory]] gets pushed even further:
-				- In [[2022-04-16 - The Stanley Hotel (Return)]] du
+				- In [[2022-04-16 - The Stanley Hotel (Return)]] during the final Estes Method Colby reports hearing breathing through the headphones.
