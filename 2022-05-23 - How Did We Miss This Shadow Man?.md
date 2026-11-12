@@ -8,3 +8,5 @@
 
 (*Sam and Colby react to stuff they have missed in Season One aka The Attachment*)
 
+1. **Did the attachment start at the Queen Mary?**
+	- In [[stanely]]
