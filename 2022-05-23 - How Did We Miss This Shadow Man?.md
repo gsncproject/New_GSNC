@@ -19,4 +19,5 @@
 		- Sam was acting weird, like in a way that was worrying his friends. Jake specifically even asks him if Sam zoned out or something.
 		- Colby now says Sam was kinda just sitting there rocking back and forth and just staring straight ahead.
 			- It was their first time at the ship when that incident occurred.
-		- Sam points out that just recently in [[Stanely]]
+		- Sam points out that just recently in [[2022-04-16 - The Stanley Hotel (Return)]] Amanda said that his attachment was *before* [[2021-07-25 - Conjuring House]]
+		- And Colby counters with that the ship was one of their
