@@ -38,4 +38,6 @@
 	- The RemPod goes off during an investigation while on the left to Seth you can see an orb (at [[West Virginia State Penitentiary]])
 	- At [[Fairfield Infirmary]] while they were standing in the hallway, while Nate was explaining something there is a shadow like apparition seen behind him in the room.
 	- [[2022-04-16 - The Stanley Hotel (Return)]] there are orbs too but about 90% of it could just be dust particles.
-	- Okay wow ther 
+	- Okay wow there’s more orbs and shadows from vids I can’t identify. lol.
+5. **OSP compared to Conjuring**
+	- At [[Ohio State Reformatory]] 
