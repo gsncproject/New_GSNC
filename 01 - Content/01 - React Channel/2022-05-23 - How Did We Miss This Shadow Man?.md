@@ -34,12 +34,12 @@
 		- 23:20 was the timestamp in [[2021-12-19 - Sallie House]] when they first mentioned the pentagram in the basement for the first time.
 		- And at the [[Bellaire House]] Kristin said “there is no such thing as a coincidence.”
 	- Again during the same Estes Method in the attic, Sam asks how *it* got there. And then Seth shakes his head before saying “Basement” and “With you” and “Play with me” and “You’re the kind that I want”
-4. **Shadows and Orbs… or whatever.**
+- #### **Shadows and Orbs… or whatever.**
 	- The RemPod goes off during an investigation while on the left to Seth you can see an orb (at [[West Virginia State Penitentiary]])
 	- At [[Fairfield Infirmary]] while they were standing in the hallway, while Nate was explaining something there is a shadow like apparition seen behind him in the room.
 	- [[2022-04-16 - The Stanley Hotel (Return)]] there are orbs too but about 90% of it could just be dust particles.
 	- Okay wow there’s more orbs and shadows from vids I can’t identify. lol.
-5. **OSP compared to Conjuring**
+- #### **OSP compared to Conjuring**
 	- At [[Ohio State Reformatory]] during Sam’s Estes Methods he says “shining” and “light” and “from the basement“
 		- At [[2021-07-25 - Conjuring House]] as they were in the basement alone there was a shining light on the ceiling.
 	- Also at both places the number seven gets mentioned (like at so many other fcking places)
