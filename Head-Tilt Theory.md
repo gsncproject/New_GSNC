@@ -31,6 +31,6 @@ The Sam and Colby fans have started to build a timeline with the help of those t
 Ultimately we can establish that we can not yet say with this little evidence if all these incidents are connected or not connected. But we can establish that it’s a coincidence which is weirdly consistent enough to be worth mentioning in this archive. We are yet to see what this truly means, and whether there will be another “head-tilt incident” in possibly 2027?
 ### Sources
 - [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
-- [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) (Facts abt. the Biltmore Hotel)
-- [https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD) (Biltmore Hotel Video)
+- [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) 
+- [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD) (Bilt
 - [https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7) (Farrar Day Six and Seven)
