@@ -67,3 +67,5 @@
 - [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
 - [V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272) 
 - [Picture Game (Chant)](https://www.scaryforkids.com/picture-game/)
+- [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
+- [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) 
