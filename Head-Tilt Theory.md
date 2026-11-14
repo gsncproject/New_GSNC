@@ -2,7 +2,12 @@
 
 # Biltmore Hotel Incident
 **Related Notes**:
-
+- [[Sam Golbach]]
+- [[Colby Brock]]
+- [[Jake Webber]]
+- [[2021-12-19 - Sallie House]]
+- [[Farrar Elementary School Day 7]]
+- 
 ### Short Explanation
 By now everyone who has started watching Sam and Colby has eventually reached the Millennium Biltmore Video where they stay at the Presidential Suite. And those who have watched it, argue whether it should be talked about more. But is it really worth talking about so thoroughly?
 
@@ -32,5 +37,5 @@ Ultimately we can establish that we can not yet say with this little evidence if
 ### Sources
 - [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
 - [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) 
-- [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD) (Bilt
-- [https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7) (Farrar Day Six and Seven)
+- [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD)
+- [Sam and Colby: Farrar Day Six and Seven](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7)
