@@ -36,6 +36,8 @@
 - [Sam and Colby: Casa Loma](https://youtu.be/R_B9O_w58NU?is=d-8X-xQdMUTa5Zn-)
 - [Sam and Colby React: The Attachment](https://youtu.be/G_-qkSKLfUE?is=Ar3OMgOjuQHNoTu4)
 - [Sam and Colby React: HellWeek 2021](https://youtu.be/ThpdP9WRPoE?is=RMgQchJPN0fpLt5u)
+- [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD)
+- [Sam and Colby: Farrar Day Six and Seven](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7)
 ## Other external sources
 - [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 - [(Outside Transcript) Sam and Colby: Cression Asylum](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
