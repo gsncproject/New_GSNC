@@ -26,16 +26,11 @@ The Sallie House is said to be haunted by this six or seven year old girl named 
 
 But why do I tell you this? Like the Biltmore and Farrar School video, towards the end Sam and Colby go into the basement of the Sallie House and Sam sits down on the burned pentagram. And there we have the head lifting a third time. 
 
-
 The Sam and Colby fans have started to build a timeline with the help of those three incidents and have found that it was always three years apart: 2019 (Jake), 2021 (Sam), 2024 (Colby). Though, there is no solid evidence to call this something that is connected to each other, it has been a weird coincidence either way. Especially due to the fact that Sam Golbach does have a confirmed attachment identifying itself as “Sallie”, yet new speculations suggest that “Sallie” might not be the entity's true identity but a disguise.
 
-  
-
 Ultimately we can establish that we can not yet say with this little evidence if all these incidents are connected or not connected. But we can establish that it’s a coincidence which is weirdly consistent enough to be worth mentioning in this archive. We are yet to see what this truly means, and whether there will be another “head-tilt incident” in possibly 2027?
-
 ### Sources
-
-- [https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) (Biltmore Hotel Incident)
-- [https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) (Facts abt. the Biltmore Hotel)
+- [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
+- [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) (Facts abt. the Biltmore Hotel)
 - [https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD) (Biltmore Hotel Video)
 - [https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7) (Farrar Day Six and Seven)
