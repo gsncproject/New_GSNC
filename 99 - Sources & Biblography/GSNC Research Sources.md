@@ -34,7 +34,8 @@
 - [Sam and Colby: Indiana State Sanatorium](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
 - [Sam and Colby: Farrar School Day 1 & 2](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 - [Sam and Colby: Casa Loma](https://youtu.be/R_B9O_w58NU?is=d-8X-xQdMUTa5Zn-)
-- [Sam and Colby]()
+- [Sam and Colby React: The Attachment](https://youtu.be/G_-qkSKLfUE?is=Ar3OMgOjuQHNoTu4)
+- 
 ## Other external sources
 - [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 - [(Outside Transcript) Sam and Colby: Cression Asylum](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
