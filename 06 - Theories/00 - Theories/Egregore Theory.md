@@ -13,3 +13,4 @@
 What if Sallie, Lucy, Emily and the other names aren't simply different identities of one entity?
 
 What if they're something that exists because of the attention, belief, experiences and associations surrounding them?
+#### 2026-11-15
