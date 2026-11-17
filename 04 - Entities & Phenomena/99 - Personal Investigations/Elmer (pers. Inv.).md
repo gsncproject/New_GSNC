@@ -1,6 +1,6 @@
 #gsnc #entity 
 
-# Elmer/Beatrice
+# Liam
 **Related Notes**:
 - [[Lindsey K.]] 
 - [[Lindsey‘s Attachment]]
@@ -11,3 +11,4 @@
 - (She) doesn‘t like visitors
 - brown hair
 - has many scars
+- 
