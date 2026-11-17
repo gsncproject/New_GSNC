@@ -7,4 +7,4 @@
 6. [[Henry (pers. Inv.)]] 
 7. [[Jimmy (pers. Inv.)]] 
 8. [[Neil (pers. Inv.)]] 
-9. [[Gregory (pe)]]
+9. [[Gregory (pers. Inv.)]] 
