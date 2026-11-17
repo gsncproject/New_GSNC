@@ -6,6 +6,6 @@
 - [[Lindsey‘s Attachment]]
 
 - Likes the forest 
-- Possibly died by creature - a bullet took it‘s 
+- Possibly died by creature - a bullet took it‘s life
 - Experiment/Bullet
 - (She) doesn‘t like visitors
