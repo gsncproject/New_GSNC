@@ -9,3 +9,5 @@
 - Possibly died by creature - a bullet took it‘s life
 - Experiment/Bullet 2x
 - (She) doesn‘t like visitors
+- brown hair
+- has many scars
