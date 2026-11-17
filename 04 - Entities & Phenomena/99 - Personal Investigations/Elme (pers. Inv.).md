@@ -11,4 +11,5 @@
 - (She) doesn‘t like visitors
 - brown hair
 - has many scars
-- 
+- Beatrice
+- Elmer
