@@ -2,7 +2,7 @@
 
 # Elmer 
 **Related Notes**:
-- [[Lindsey K.]]
+- [[Lindsey K.]] 
 - [[Lindsey‘s Attachment]]
 
 - Likes the forest 
