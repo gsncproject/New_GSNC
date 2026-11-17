@@ -3,6 +3,10 @@
 # Liam
 **Related Notes**:
 - [[Lindsey K.]] 
+- [[Joline F]]
+- [[Malina H]]
+- [[Joline‘s Attachments]]
+- [[Malina‘s Attachments]]
 - [[Lindsey‘s Attachment]]
 
 - Likes the forest 
