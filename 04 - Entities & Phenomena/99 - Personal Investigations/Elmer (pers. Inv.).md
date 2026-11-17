@@ -1,6 +1,6 @@
 #gsnc #entity 
 
-# Elmer 
+# Elmer/Beatrice
 **Related Notes**:
 - [[Lindsey K.]] 
 - [[Lindsey‘s Attachment]]
