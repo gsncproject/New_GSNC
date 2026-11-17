@@ -4,4 +4,4 @@
 **Related Notes**:
 
 - Likes the forest 
-- 
+- Possibly died by creature 
