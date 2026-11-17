@@ -15,6 +15,6 @@
 - (She) doesn‘t like visitors
 - brown hair
 - has many scars
-- Beatrice
+- [[Beatrice (pers. Inv.)]]
 - Elmer
-- Carl
+- Carl 
