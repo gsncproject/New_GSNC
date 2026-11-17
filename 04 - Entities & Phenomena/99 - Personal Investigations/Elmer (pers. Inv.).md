@@ -7,3 +7,5 @@
 
 - Likes the forest 
 - Possibly died by creature 
+- Experiment/Bullet
+- (She) doesn‘t like visitors
