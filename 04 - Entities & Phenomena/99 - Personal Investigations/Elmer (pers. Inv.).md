@@ -2,6 +2,8 @@
 
 # Elmer 
 **Related Notes**:
+- [[Lindsey K.]]
+- [[Lindsey‘s Attachment]]
 
 - Likes the forest 
 - Possibly died by creature 
