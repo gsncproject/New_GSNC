@@ -3,4 +3,5 @@
 # Elmer 
 **Related Notes**:
 
-- Possibly creature 
+- Likes the forest 
+- 
