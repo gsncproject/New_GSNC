@@ -16,5 +16,6 @@
 - brown hair
 - has many scars
 - [[Beatrice (pers. Inv.)]]
-- Elmer
-- Carl 
+- [[Elmer (pers. Inv.)]]
+- [[Carl (pers. Inv.)]]
+- [[Henry (pers. Inv.)]] 
