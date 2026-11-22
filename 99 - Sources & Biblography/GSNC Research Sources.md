@@ -69,3 +69,4 @@
 - [Picture Game (Chant)](https://www.scaryforkids.com/picture-game/)
 - [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
 - [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) 
+- [TikTok: Little Devil Theory](https://vm.tiktok.com/ZGdXvsK59/) 
