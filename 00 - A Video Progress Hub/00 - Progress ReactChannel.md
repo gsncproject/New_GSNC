@@ -1,1 +1,5 @@
 - [ ] – How Did We Miss This Shadow Man? | Sam and Colby React 
+- [ ] – How Did We Miss This!? | Hell Week Reaction 
+- [ ] – How Did We Miss This? | Demonic Goatman's Bridge
+- [ ] – SCARIEST Sam and Colby Moment of All Times!
+- [ ] – 
