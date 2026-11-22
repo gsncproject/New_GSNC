@@ -1,3 +1,7 @@
 #entity #gsnc 
 
-# Multiple 
+# Multiple Pauls 
+## [[Paul (Stanley)]]
+- Paul listed among the hauntings
+- a location called Paul's Room
+- 
