@@ -6,4 +6,7 @@
 - a location called Paul's Room
 - unusual activity in that location 
 - phsyical reaction from [[Sam Golbach]]
-- was a janitor at the Stanley Hotel
+- was a janitor at the Stanley Hotel 
+## [[Paul (Farrar)]]
+- a spirit named Paul 
+- 
