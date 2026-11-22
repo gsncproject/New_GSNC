@@ -1,7 +1,7 @@
 #reactchannel #gsnc 
 
 >[!Information]
->
->Title:
->Published: xxxx/xx/xx
->Sam Golbach / Colby Brock
+>https://youtu.be/ThpdP9WRPoE?si=BRbZsa8-oIy8wYKB
+>Title: How Did We Miss This!? | Hell Week Reaction 
+>Published: 
+>[[Sam Golbach]] / [[Colby Brock]]
