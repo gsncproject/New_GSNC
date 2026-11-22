@@ -1,5 +1,5 @@
 #notes #gsnc 
 
 # Little Devil Theory
-**Video Targeted**: 
-**TikTok Video**
+**Video Targeted**: [[We Survived Scariest 3 AM Challenges Of All Times]] 
+**TikTok Video**: 
