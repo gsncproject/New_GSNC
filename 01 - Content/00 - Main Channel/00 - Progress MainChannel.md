@@ -5,7 +5,7 @@
 			- [x] - Shanley Hotel  [completion:: 2026-04-03]
 			- [x] - Wilson Castle  [completion:: 2026-04-03]
 			- [x] - Saratoga Hospital  [completion:: 2026-04-03]
-		- [ ] - HellWeek 2021 
+		- [x] - HellWeek 2021 
 			- [x] - Bran Castle  [completion:: 2026-04-03]
 			- [x] - Ukraine Catacombs  [completion:: 2026-04-03]
 			- [x] - Queen Mary Ship (2) [completion:: 2026-09-27]
@@ -13,7 +13,7 @@
 			- [x] - Hotel Del Coronado  [completion:: 2026-09-19]
 			- [x] - Waverly Hills Sanatorium [completion:: 2026-09-20]
 			- [x] - Conjuring House (2)  [completion:: 2026-07-28]
-		- [ ] - November 2021 - December 2021 
+		- [x] - November 2021 - December 2021 
 			- [x] - Sallie House !!!!  [completion:: 2026-05-23]
 			- [x] - Villisca Axe Murder House [completion:: 2026-10-03]
 		- [ ] - The Attachment 
