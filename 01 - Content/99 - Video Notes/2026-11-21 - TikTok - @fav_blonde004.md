@@ -1,5 +1,5 @@
 #notes #gsnc 
 
 # Little Devil Theory
-**Video Targeted**:
-****
+**Video Targeted**: 
+**TikTok Video**
