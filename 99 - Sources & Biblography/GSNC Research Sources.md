@@ -40,6 +40,7 @@
 - [Sam and Colby: Farrar Day Six and Seven](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7)
 - [Sam and Colby React: Goatman's Bridge](https://youtu.be/KvoFQbKTmeg?si=t4FSKkJXyA3Fj8P6)
 - [Sam and Colby React: Scariest Moments of all times](https://youtu.be/GesUUV4-fgA?si=tsJy6HlCC7rG5ysg)
+- [Sam and Colby React: Season Two](https://youtu.be/1qd4gsJ7PHg?si=6FHLWHqW83auJueU)
 ## Other external sources
 - [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 - [(Outside Transcript) Sam and Colby: Cression Asylum](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
