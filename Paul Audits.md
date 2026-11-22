@@ -9,4 +9,6 @@
 - was a janitor at the Stanley Hotel 
 ## [[Paul (Farrar)]]
 - a spirit named Paul 
-- 
+- [[CelinaSpookyBoo]] revealed the name 
+	- near the Boiler Room 
+
