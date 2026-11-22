@@ -34,6 +34,10 @@
 - [Sam and Colby: Indiana State Sanatorium](https://youtu.be/eDUtBY7tOOc?si=9rHaw30fkNS6tYDJ)
 - [Sam and Colby: Farrar School Day 1 & 2](https://youtu.be/TDjxWs84WMk?si=WvUnAE-h7xX98OpI)
 - [Sam and Colby: Casa Loma](https://youtu.be/R_B9O_w58NU?is=d-8X-xQdMUTa5Zn-)
+- [Sam and Colby React: The Attachment](https://youtu.be/G_-qkSKLfUE?is=Ar3OMgOjuQHNoTu4)
+- [Sam and Colby React: HellWeek 2021](https://youtu.be/ThpdP9WRPoE?is=RMgQchJPN0fpLt5u)
+- [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD)
+- [Sam and Colby: Farrar Day Six and Seven](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7)
 ## Other external sources
 - [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 - [(Outside Transcript) Sam and Colby: Cression Asylum](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
@@ -63,3 +67,5 @@
 - [David A. Leeming - World Mythology: A Very Short Introduction, “The Trickster”](https://doi.org/10.1093/actrade/9780197548264.003.0005)
 - [V. Nzingha Gaffin (2010) — “Trickster Figure,” Encyclopedia of Identity](https://doi.org/10.4135/9781412979306.n272) 
 - [Picture Game (Chant)](https://www.scaryforkids.com/picture-game/)
+- [Reddit: Biltmore Hotel Incident](https://www.reddit.com/r/SamAndColby/comments/wv0mhz/why_dont_we_talk_about_this_sam_and_colby_moment/) 
+- [Facts abt. the Biltmore Hotel](https://hauteliving.com/2019/10/los-angeles-most-haunted-iconic-hotel-the-millennium-biltmore/674379/) 
