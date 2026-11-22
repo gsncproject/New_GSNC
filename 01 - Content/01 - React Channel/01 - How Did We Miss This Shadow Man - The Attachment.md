@@ -7,5 +7,5 @@
 >[[Sam Golbach]] / [[Colby Brock]]
 
 **Related Notes**:
-- [[Queen]]
+- [[2021-10-21 - Queen Mary Ship (Return)]]
 ## Did the attachment start at the Queen Mary Ship?
