@@ -1,4 +1,4 @@
-#note #gsnc 
+#notes  #gsnc 
 
 # Life Path Numbers
 **Video targeted**: [[Winchester Mystery House (Return)]]
