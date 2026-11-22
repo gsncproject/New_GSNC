@@ -2,6 +2,6 @@
 
 >[!Information]
 >https://youtu.be/GesUUV4-fgA?si=tsJy6HlCC7rG5ysg
->Title:
->Published: xxxx/xx/xx
->Sam Golbach / Colby Brock
+>Title: SCARIEST Sam and Colby Moment of All Times!
+>Published: 
+>[[Sam Golbach]] / [[Colby Brock]]
