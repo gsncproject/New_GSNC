@@ -6,3 +6,6 @@
 >Published: 
 >[[Sam Golbach]] / [[Colby Brock]]
 
+**Related Notes**:
+- [[Queen]]
+## Did the attachment start at the Queen Mary Ship?
