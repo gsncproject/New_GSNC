@@ -1,28 +1,28 @@
 #progress #gsnc 
 
- - Volume II (2023-2024)
+ - [ ] - Volume II (2023-2024)
 	- [ ] - February 2023 - May 2023 
 		- [ ] - Savannah Video
 			- [ ] - Moon River Brewing Company 
 			- [ ] - Sorrel-Weed House 
-			- [ ] - Tonopah Video 
-				- [ ] - Clown Motel 
-				- [ ] - Mizpah Hotel (1)
-				- [ ] - Goldfield Hotel 
-			- [ ] - Whaley House 
-		- [ ] - UK Trilogy pt. 2
-			- [ ] - Ancient Ram Inn 
-			- [ ] - Hellfire Caves 
-			- [ ] - Chillingham Castle 
-		- [ ] - September 2023 
-			- [ ] - Kreischer's Mansion 
-		- [ ] - HellWeek 2023 
-			- [ ] - Conjuring House Day 1
-			- [ ] - Conjuring House Day 2
-			- [ ] - Conjuring House Day 3 
-			- [ ] - Conjuring House Day 4
-			- [ ] - Conjuring House Day 5 
-			- [ ] - Conjuring House Day 6 
+		- [ ] - Tonopah Video 
+			- [ ] - Clown Motel 
+			- [ ] - Mizpah Hotel (1)
+			- [ ] - Goldfield Hotel 
+		- [ ] - Whaley House 
+	- [ ] - UK Trilogy pt. 2
+		- [ ] - Ancient Ram Inn 
+		- [ ] - Hellfire Caves 
+		- [ ] - Chillingham Castle 
+	- [ ] - September 2023 
+		- [ ] - Kreischer's Mansion 
+	- [ ] - HellWeek 2023 
+		- [ ] - Conjuring House Day 1
+		- [ ] - Conjuring House Day 2
+		- [ ] - Conjuring House Day 3 
+		- [ ] - Conjuring House Day 4
+		- [ ] - Conjuring House Day 5 
+		- [ ] - Conjuring House Day 6 
 			- [ ] - Conjuring House Day 7
 		- [ ] - December 2023 
 			- [ ] - Mineral Springs Hotel 
