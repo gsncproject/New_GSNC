@@ -1,4 +1,5 @@
 {
-  "cssTheme": "Sodalite",
-  "showRibbon": true
+  "cssTheme": "Blue Topaz",
+  "showRibbon": true,
+  "accentColor": "#5cd6f5"
 }
