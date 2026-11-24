@@ -32,6 +32,9 @@
 		- [ ] - Haunted Clubs 
 			- [ ] - Bobby Mackey's 
 			- [ ] - Joe Rogan's Comedy Club 
+		- [ ] - Geelong Gaol 
+		- [x] - Indiana State Sanatorium [completion:: 2026-11.]
+		- [ ] - 
 		- [ ] - Gettyburg Video 
 			- [ ] - Farnsworth House 
 			- [ ] - Jenny Wade House 
