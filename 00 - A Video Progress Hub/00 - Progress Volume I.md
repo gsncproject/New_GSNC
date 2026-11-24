@@ -1,0 +1,50 @@
+#progress #gsnc 
+
+- [ ] - Volume I (2021-2022)
+	- [x] - July 2021 - September 2021  [completion:: 2026-04-12]
+		- [x] - Conjuring House (1)  [completion:: 2026-04-12]
+			- [x] - Shanley Hotel  [completion:: 2026-04-03]
+			- [x] - Wilson Castle  [completion:: 2026-04-03]
+			- [x] - Saratoga Hospital  [completion:: 2026-04-03]
+		- [x] - HellWeek 2021 
+			- [x] - Bran Castle  [completion:: 2026-04-03]
+			- [x] - Ukraine Catacombs  [completion:: 2026-04-03]
+			- [x] - Queen Mary Ship (2) [completion:: 2026-09-27]
+			- [x] - Pine Barrens  [completion:: 2026-07-28]
+			- [x] - Hotel Del Coronado  [completion:: 2026-09-19]
+			- [x] - Waverly Hills Sanatorium [completion:: 2026-09-20]
+			- [x] - Conjuring House (2)  [completion:: 2026-07-28]
+		- [x] - November 2021 - December 2021 
+			- [x] - Sallie House !!!!  [completion:: 2026-05-23]
+			- [x] - Villisca Axe Murder House [completion:: 2026-10-03]
+		- [ ] - The Attachment 
+			- [x] - Fort Henry [completion:: 2026-10-25]
+			- [ ] - Casa Loma 
+			- [ ] - Bellaire House 
+			- [ ] - West Virginia State Penitentiary
+			- [ ] - Madison Seminary 
+			- [ ] - Ohio State Reformatory
+			- [x] - Stanley Hotel (2)  [completion:: 2026-04-12]
+		- [ ] - Empath 
+			- [x] - Zak Bagans Haunted Museum (1) [completion:: 2026-09-15]
+			- [ ] - Mizpah Hotel (1)
+			- [ ] - Crescent Hotel 
+			- [x] - Goatman's Bridge  [completion:: 2026-04-03]
+			- [ ] - Bowers Mansion 
+			- [x] - Black Swan Inn  [completion:: 2026-04-12]
+			- [x] - Cosmo Hotel  [completion:: 2026-04-03]
+		- [ ] - UK Trilogy pt. 1
+			- [ ] - Spike Island
+			- [ ] - Leap Castle 
+			- [ ] - Shadow Man Manor
+		- [ ] - HellWeek 2022 
+			- [x] - Yorktown Memorial  [completion:: 2026-04-12]
+			- [ ] - McRaven Mansion 
+			- [ ] - Myrtles Plantation 
+			- [x] - Trans-Allegheny Lunatic Asylum  [completion:: 2026-08-01]
+			- [ ] - Old Washoe Club 
+			- [ ] - Bell Witch Cave 
+			- [ ] - Winchester Mystery House (2)
+		- [ ] - December 2022
+			- [ ] - Robert the Doll Museum (1)
+			- [x] - St. Augustine Lighthouse  [completion:: 2026-04-03]
