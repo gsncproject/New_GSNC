@@ -33,7 +33,7 @@
 			- [ ] - Bobby Mackey's 
 			- [ ] - Joe Rogan's Comedy Club 
 		- [ ] - Geelong Gaol 
-		- [x] - Indiana State Sanatorium [completion:: 2026-11-14]
+		- [x] - Indiana State Sanatorium [completion:: 2026-09-14]
 		- [ ] - Beechworth Asylum 
 		- [ ] - Gettyburg Video 
 			- [ ] - Farnsworth House 
