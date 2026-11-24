@@ -33,13 +33,13 @@
 			- [ ] - Bobby Mackey's 
 			- [ ] - Joe Rogan's Comedy Club 
 		- [ ] - Geelong Gaol 
-		- [x] - Indiana State Sanatorium [completion:: 2026-11.]
-		- [ ] - 
+		- [x] - Indiana State Sanatorium [completion:: 2026-11-14]
+		- [ ] - Beechworth Asylum 
 		- [ ] - Gettyburg Video 
 			- [ ] - Farnsworth House 
 			- [ ] - Jenny Wade House 
 			- [ ] - Old Orphanage
-		- [ ] 
+		- [ ] - Hinsdale House 
 	- [ ] - HellWeek 2024 
 		- [x] - Farrar Elementary School Day 1  [completion:: 2026-04-03]
 		- [x] - Farrar Elementary School Day 2  [completion:: 2026-04-03]
