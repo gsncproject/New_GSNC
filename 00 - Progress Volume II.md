@@ -28,13 +28,14 @@
 		- [ ] - Mineral Springs Hotel 
 		- [ ] - Celina‘s House 
 	- [ ] - February 2024 - September 2024
+		- [ ] - Driskill Hotel 
+		- [ ] - Haunted Clubs 
+			- [ ] - Bobby Mackey's 
+			- [ ] - Joe Rogan's Comedy Club 
 		- [ ] - Gettyburg Video 
 			- [ ] - Farnsworth House 
 			- [ ] - Jenny Wade House 
 			- [ ] - Old Orphanage
-		- [ ] - Haunted Clubs 
-			- [ ] - Bobby Mackey's 
-			- [ ] - Joe Rogan's Comedy Club 
 		- [ ] 
 	- [ ] - HellWeek 2024 
 		- [x] - Farrar Elementary School Day 1  [completion:: 2026-04-03]
