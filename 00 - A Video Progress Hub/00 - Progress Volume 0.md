@@ -11,7 +11,9 @@
 - [ ] - Stanley Hotel (1)
 - [ ] - Witches Forest 
 - [ ] - The Origin Series 
-- [ ] - The Graveyard Series 
+- [ ] - The Graveyard Series
+	- [ ] - Langham Hotel 
+	- [ ] - St. Andrews Church 
 - [ ] - Neidpath Castle 
 - [ ] - Return of the Shadow Man 
 - [ ] - Winchester Mystery House (1)
