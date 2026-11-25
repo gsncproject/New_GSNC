@@ -4,38 +4,38 @@
 	- [ ] - February 2025 - September 2025
 		- [ ] - Haunted Prisons
 			- [ ] - Old Gilchrist County Jail
-				- [ ] - Old Hamilton County Jail 
-				- [ ] - St. Augustine Old Jail 
-			- [ ] - Doll Island 
-			- [ ] - Fairfield Infirmary (2)
-			- [ ] - Haunted Airbnbs
-				- [ ] - The Black Monarch 
-				- [ ] - Linville Manor 
-				- [ ] - Henry Derby House 
-			- [ ] - White Hill Mansion 
-			- [ ] - Billy Creek 
-		- [ ] - HellWeek 2025 
-			- [ ] - Poveglia Island
-			- [ ] - Pendle Hill 
-			- [ ] - Paris Catacombs 
-			- [ ] - Smurl House
-		- [ ] - November 2025 - December 2025 
-			- [ ] - FazeRug‘s House
-			- [ ] - SK Pierce Mansion 
-		- [ ] - February 2026 - September 2026 
-			- [ ] - Las Vegas Hotels
-				- [ ] - Circus Circus Hotel 
-				- [ ] - Flamingo Hotel 
-				- [ ] - Luxor Hotel
-			- [ ] - Sam and Colby‘s House 
-			- [x] - Haunted Factory  [completion:: 2026-07-08]
-			- [x] - Magnolia Hotel  [completion:: 2026-05-22]
-			- [ ] - Pennhurst Asylum
-			- [ ] - Appalacha Mountains
-			- [x] - Cresson Sanatorium and Prison  [completion:: 2026-08-08]
-		- [ ] - HellWeek 2026
-			- [x] - Corvin Castle [completion:: 2026-10-09]
-			- [x] - Abandoned Asylum X [completion:: 2026-11-01]
-			- [ ] - Devil‘s Prison 
-			- [ ] - America‘s Catacombs 
-			- [ ] - Appalachian Castle 
+			- [ ] - Old Hamilton County Jail 
+			- [ ] - St. Augustine Old Jail 
+		- [ ] - Doll Island 
+		- [ ] - Fairfield Infirmary (2)
+		- [ ] - Haunted Airbnbs
+			- [ ] - The Black Monarch 
+			- [ ] - Linville Manor 
+			- [ ] - Henry Derby House 
+		- [ ] - White Hill Mansion 
+		- [ ] - Billy Creek 
+	- [ ] - HellWeek 2025 
+		- [ ] - Poveglia Island
+		- [ ] - Pendle Hill 
+		- [ ] - Paris Catacombs 
+		- [ ] - Smurl House
+	- [ ] - November 2025 - December 2025 
+		- [ ] - FazeRug‘s House
+		- [ ] - SK Pierce Mansion 
+	- [ ] - February 2026 - September 2026 
+		- [ ] - Las Vegas Hotels
+			- [ ] - Circus Circus Hotel 
+			- [ ] - Flamingo Hotel 
+			- [ ] - Luxor Hotel
+		- [ ] - Sam and Colby‘s House 
+		- [x] - Haunted Factory  [completion:: 2026-07-08]
+		- [x] - Magnolia Hotel  [completion:: 2026-05-22]
+		- [ ] - Pennhurst Asylum
+		- [ ] - Appalacha Mountains
+		- [x] - Cresson Sanatorium and Prison  [completion:: 2026-08-08]
+	- [ ] - HellWeek 2026
+		- [x] - Corvin Castle [completion:: 2026-10-09]
+		- [x] - Abandoned Asylum X [completion:: 2026-11-01]
+		- [ ] - Devil‘s Prison 
+		- [ ] - America‘s Catacombs 
+		- [ ] - Appalachian Castle 
