@@ -10,4 +10,7 @@
 - [ ] - Queen Mary Ship (3)
 - [ ] - Stanley Hotel (1)
 - [ ] - Witches Forest 
-- [ ] - 
+- [ ] - The Origin Series 
+- [ ] - The Graveyard Series 
+- [ ] - Neidpath Castle 
+- [ ] 
