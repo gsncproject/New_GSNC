@@ -1,4 +1,4 @@
-#videos #vol_I #gsnc 
+#vol_I #gsnc 
 
 >[!Information]
 >https://youtu.be/_nu1-II8klI?is=NYQLl1mpQQLULu46

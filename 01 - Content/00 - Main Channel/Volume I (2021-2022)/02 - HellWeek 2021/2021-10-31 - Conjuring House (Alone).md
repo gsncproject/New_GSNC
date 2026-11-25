@@ -1,4 +1,4 @@
-#HellWeek21 #sam_and_colby #vol_I #gsnc 
+#HellWeek21 #vol_I #gsnc 
 
 >[!Information]
 >https://youtu.be/aUrKlUD5NcY?si=aC3TSEUlv_OOV5eL 

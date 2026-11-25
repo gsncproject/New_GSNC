@@ -1,4 +1,4 @@
-#theattachment #videos #gsnc #vol_I 
+#theattachment #gsnc #vol_I 
 
 >[!Information]
 >https://youtu.be/r5YhdvmLIoA?is=SOJrGjHBRGYLgJ4M
