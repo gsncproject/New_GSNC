@@ -11,7 +11,7 @@
 ## Part I — Colby’s possible attachment
 The recovered Mason discussion
 Important discovery
-Source: Screenshots recovered from the TikTok comments on a GSNC Project post.
+Source: Screenshots recovered fromvvvvv''''' the TikTok comments on a GSNC Project post.
 Date shown on comments: September 20, 2026.
 Account: @gsnc.project (my account).
 Other participant: Ruth.
