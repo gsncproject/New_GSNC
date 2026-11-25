@@ -2,7 +2,7 @@
 
 - [x] - Suicide Bridge
 - [x] - Queen Mary Ship (1)
-- [ ] - Queen Mary Ship (2)
+- [x] - Queen Mary Ship (2)
 - [ ] - Queen Mary Ship Audio
 - [ ] - Millennium Biltmore Hotel (1)
 - [ ] - Millennium Biltmore Hotel (2)
