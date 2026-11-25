@@ -1,4 +1,4 @@
-#sam_and_colby #videos #vol_III #gsnc 
+#vol_III #gsnc 
 
 >[!Information]
 >https://youtu.be/SnFlIN1SW3Y?is=bmxS2yBdvJICkha9
