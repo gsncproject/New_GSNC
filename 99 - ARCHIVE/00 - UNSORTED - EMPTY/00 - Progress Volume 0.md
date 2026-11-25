@@ -8,4 +8,6 @@
 - [ ] - Millennium Biltmore Hotel (2)
 - [ ] - Mission Inn Hotel 
 - [ ] - Queen Mary Ship (3)
+- [ ] - Stanley Hotel (1)
+- [ ] - Witches Forest 
 - [ ] - 
