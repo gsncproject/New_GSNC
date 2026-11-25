@@ -1,4 +1,4 @@
-#empath #sam_and_colby #vol_I #gsnc 
+#empath #vol_I #gsnc 
 
 >[!Information]
 >https://youtu.be/UM7CypIyXXY?si=TF1B6yJQQrS4QeME 

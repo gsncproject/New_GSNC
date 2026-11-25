@@ -1,4 +1,4 @@
-#empath #videos #vol_I #gsnc 
+#empath #vol_I #gsnc 
 
 >[!Information]
 >https://youtu.be/9oY-xLC08KA?is=y0oWz9vNRQuGFIhH
