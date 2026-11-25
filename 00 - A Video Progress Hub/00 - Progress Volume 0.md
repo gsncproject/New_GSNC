@@ -15,4 +15,6 @@
 - [ ] - Neidpath Castle 
 - [ ] - Return of the Shadow Man 
 - [ ] - Winchester Mystery House (1)
-- [ ] 
+- [ ] - Queen Anne Hotel 
+- [ ] - USS Hornet 
+- [ ] - Lizzie Borden House 
