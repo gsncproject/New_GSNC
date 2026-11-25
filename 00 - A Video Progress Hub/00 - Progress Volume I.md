@@ -6,7 +6,7 @@
 		- [x] - Shanley Hotel  [completion:: 2026-04-03]
 		- [x] - Wilson Castle  [completion:: 2026-04-03]
 		- [x] - Saratoga Hospital  [completion:: 2026-04-03]
-	- [x] - HellWeek 2021 
+	- [x] - HellWeek 2021 [completion:: 2026]
 		- [x] - Bran Castle  [completion:: 2026-04-03]
 		- [x] - Ukraine Catacombs  [completion:: 2026-04-03]
 		- [x] - Queen Mary Ship (2) [completion:: 2026-09-27]
