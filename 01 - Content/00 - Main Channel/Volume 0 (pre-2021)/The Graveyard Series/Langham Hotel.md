@@ -3,9 +3,9 @@
 >[!Information]
 >(video link)
 >Title: THE GRAVEYARD: The Night That Changed Us Forever... (FULL MOVIE)
->Published: xxxx/xx/xx
->feat.
->Sam Golbach / Colby Brock
+>Published: 2019-
+>feat. [[Jake Webber]] and [[Corey Scherer]]
+>[[Sam Golbach]] / [[Colby Brock]]
 
 >[!Quick Summary]
 >**Entities/Spirits**:
