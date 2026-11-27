@@ -43,4 +43,5 @@ We never really thought of what these statements meant back then, but now lookin
 *Can the reference to Sam have any connection to his life path number 9?*
 #### Important Session Fragments 
 - "Sam shoots with the shadows" - June 28th, 2022 
-- 
+- "A number" - June 28th, 2022 
+### Hypothesis E - The Meaning of "Overlooked" Itself 
