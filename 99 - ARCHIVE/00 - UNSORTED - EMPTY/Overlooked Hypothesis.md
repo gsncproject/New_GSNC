@@ -23,4 +23,4 @@ We never really thought of what these statements meant back then, but now lookin
 3. Did it talk about a puppeteer?
 4. Is it a connection to Sam's lifepath number nine? 
 ### Hypothesis A - The Sam and Colby Connection 
-*Why are*
+*Why were the Spirit Box *
