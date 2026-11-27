@@ -50,3 +50,5 @@ Corey points out that 333 is also a number of the devil, because if a ghost knoc
 Jake wants to burn the ropes after what happened at the Queen Mary Ship.
 	Then Jake proceeds to open an umbrella inside. AND COREY FREAKS OUT AHHHH
 Corey randomly opens the protective glass of the window that IS THERE TO PREVENT MORE PEOPLE FROM COMMITTING SUICIDE BY JUMPING OUT
+
+In the second room they have there are literally bird statues on the lamps by the bed. 
