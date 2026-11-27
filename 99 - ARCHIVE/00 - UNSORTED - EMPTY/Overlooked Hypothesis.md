@@ -29,3 +29,4 @@ We never really thought of what these statements meant back then, but now lookin
 - "Sam he plays with demons"
 - "Sam shoots with the shadows"
 - And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
+### Hy
