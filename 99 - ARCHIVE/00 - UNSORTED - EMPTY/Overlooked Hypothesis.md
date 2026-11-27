@@ -35,3 +35,4 @@ We never really thought of what these statements meant back then, but now lookin
 - "And I've been Lucy here" - April 4th, 2022 
 - "I'm sorry for being Lucy" - June 29th, 2022 
 - "Lucy, is she one of them?" - June 29th, 2022 
+### Hypothesis C 
