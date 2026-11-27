@@ -12,7 +12,7 @@
 - [[Joline F]]  
 - [[Lena B]]
 ## Recitation of the relevant events at [[Haunted School]]
-During a paranormal investigation at this place [[Haunted School]] [[Lena B|Lena]] and I did a small experiment with my newly bought Spirit Box to see how and if it really works. We had claimed our seat on one of the exposed benches scattered throughout the school playground. I don't recall any of the questions we asked, but I recall some of the answers that we have gotten:
+During multiple paranormal investigation at this place [[Haunted School]] [[Lena B|Lena]] and I did a small experiment with my newly bought Spirit Box to see how and if it really works. We had claimed our seat on one of the exposed benches scattered throughout the school playground. I don't recall any of the questions we asked, but I recall some of the answers that we have gotten:
 - "Sam, are we overlooked?"
 - "Sam he plays with demons"
 - "Sam shoots with the shadows"
@@ -25,9 +25,9 @@ We never really thought of what these statements meant back then, but now lookin
 ### Hypothesis A - The Sam and Colby Connection 
 *Why were the Spirit Box responses constantly referenced [[Sam Golbach]] during an investigation in Germany, at a location that Lena and I were investigating, a location Sam and Colby have never been to?*
 #### Important Session Fragments
-- "Sam, are we overlooked?"
+- "Sam, are we overlooked?" - April 4th, 2022 
 - "Sam he plays with demons"
-- "Sam shoots with the shadows"
+- "Sam shoots with the shadows" - June 28th, 2022 
 - And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
 ### Hypothesis B - The Minions Connection 
 *Could the references to Sam und Lucy be connected to the entity groups previously classified as [[Minions 1]] and [[Minions 2]]?*
