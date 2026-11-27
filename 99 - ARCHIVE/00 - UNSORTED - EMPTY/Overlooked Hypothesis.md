@@ -24,4 +24,8 @@ We never really thought of what these statements meant back then, but now lookin
 4. Is it a connection to Sam's lifepath number nine? 
 ### Hypothesis A - The Sam and Colby Connection 
 *Why were the Spirit Box responses constantly referenced [[Sam Golbach]] during an investigation in Germany, at a location that Lena and I were investigating, a location Sam and Colby have never been to?*
-
+#### Important Session Fragments
+- "Sam, are we overlooked?"
+- "Sam he plays with demons"
+- "Sam shoots with the shadows"
+- And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
