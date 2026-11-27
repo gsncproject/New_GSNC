@@ -40,4 +40,7 @@ We never really thought of what these statements meant back then, but now lookin
 #### Important Session Fragments 
 - "I'm sorry for being Lucy" - June 29th, 2022 
 ### Hypothesis D - Sam's Life Path Number 
-**
+*Can the reference to Sam have any connection to his life path number 9?*
+#### Important Session Fragments 
+- "Sam shoots with the shadows" - June 28th, 2022 
+- 
