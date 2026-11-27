@@ -29,6 +29,7 @@ They get to stay in Room 333 which is supposedly the most haunted, and reception
 - Another story is that there was a famous cricketer, he was staying at the room and in the middle of the night he was woken by the sound of taps turning on, he went to the bathroom, water was gushing out through the taps.
 	- Sam immediately connects that to [[Queen Mary Ship (2)]]
 #### [[Stone-Tape Theory]] brought to you by [[John Fraiser]]
+(*The theory isn't name specified but I just know its Stone-Tape*)
 John explains that there is a theory that ghosts are a tape recording in some way and that when you for example see only half of the body, that there is a possibility that the floor was lowered or raised at some point. 
 	After Sam asks him if he could explain a little more, John starts explaing that the theory is that there are certain types of stones possibily associated with a damp atmosphere as well, can kind of hold a particularly traumatic experience and replay it like a tape recording under certain circumstances. You can't really communicate with them but that's why you get a ghost that does the same walk or maybe walks behind a wall or door that might've been there once upon a time.
 
