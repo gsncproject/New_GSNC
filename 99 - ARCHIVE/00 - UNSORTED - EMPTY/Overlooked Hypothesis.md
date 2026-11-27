@@ -23,4 +23,5 @@ We never really thought of what these statements meant back then, but now lookin
 3. Did it talk about a puppeteer?
 4. Is it a connection to Sam's lifepath number nine? 
 ### Hypothesis A - The Sam and Colby Connection 
-*Why were the Spirit Box responses constantly referenced [[Sam Golbach]] during an investigation in Germany, at a location that Lena and I were investigating*
+*Why were the Spirit Box responses constantly referenced [[Sam Golbach]] during an investigation in Germany, at a location that Lena and I were investigating, a location Sam and Colby have never been to?*
+
