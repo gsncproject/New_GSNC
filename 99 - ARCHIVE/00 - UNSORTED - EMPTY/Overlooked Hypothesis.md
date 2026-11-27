@@ -37,4 +37,6 @@ We never really thought of what these statements meant back then, but now lookin
 - "Lucy, is she one of them?" - June 29th, 2022 
 ### Hypothesis C - The Puppeteer Connection 
 *Could there be a controlling or organizing presence behind the different entities or responses?*
-#### Important 
+#### Important Session Fragments 
+- "I'm sorry for being Lucy" - June 29th, 2022 
+### 
