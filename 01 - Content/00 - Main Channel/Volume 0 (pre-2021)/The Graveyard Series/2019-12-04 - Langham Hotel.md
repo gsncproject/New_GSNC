@@ -43,4 +43,5 @@ Rosie randomly drops that there is also a story of a butler and Napoleon?! AND T
 
 When they get to the room the card thingy to open the door doesn't work on the first try. On the second try it works seamlessly.
 - Why the fuck is the TV on?
-- Why the fuck
+- Why the fuck is the light on?
+- And what the fuck is the window's problem?
