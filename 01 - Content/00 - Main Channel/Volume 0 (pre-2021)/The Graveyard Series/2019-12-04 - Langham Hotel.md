@@ -20,4 +20,4 @@ Sam says the trip is because they wanna prove that they're the best ghost hunter
 	Because in [[The Origin Series]] that guy said that they might be "stuck in this medium world"
 They are going to meet with two paranormal experts
 
-They get to stay in Room 333 which is supposedly the most haunted 
+They get to stay in Room 333 which is supposedly the most haunted, and receptionist seems rather backholding about the paranormal stuff in the hotel when asked.
