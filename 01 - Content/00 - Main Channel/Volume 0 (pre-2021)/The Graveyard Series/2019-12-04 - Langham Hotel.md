@@ -27,4 +27,4 @@ They get to stay in Room 333 which is supposedly the most haunted, and reception
 - A victorian doctor spent a night in Room 333 with his bride, it was his wedding night, no one knows the circumstances as to why but the doctor murdered his bride in Room 333.
 - In 1973 the journalist James Alexander Gordon was staying in Room 333, when he was awoken in the middle of the night, and its said that he saw a fluorenscent ball of light that slowly formed into the figure of a man. But there was something rather strange about this man, he was dressed in full evening suit, very smart but the bottom half of his legs were actually missing. The journalist tried to speak to the figure, but the figure didn't speak back to him, it just walked towards him with his arms open.
 - Another story is that there was a famous cricketer, he was staying at the room and in the middle of the night he was woken by the sound of taps turning on, he went to the bathroom, water was gushing out through the taps.
-	- Sam immediately connects that to Queenmarys
+	- Sam immediately connects that to [[Queen Mary Ship (2)]]
