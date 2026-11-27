@@ -2,7 +2,7 @@
   "cssTheme": "Blue Topaz",
   "showRibbon": true,
   "accentColor": "#5cd6f5",
-  "interfaceFontFamily": "Old English Text MT",
-  "textFontFamily": "Old English Text MT",
-  "monospaceFontFamily": "Old English Text MT"
+  "interfaceFontFamily": "",
+  "textFontFamily": "",
+  "monospaceFontFamily": ""
 }
