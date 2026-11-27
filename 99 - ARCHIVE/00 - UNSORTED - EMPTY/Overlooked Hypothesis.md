@@ -10,5 +10,6 @@ During an paranormal investigation at this place [[Haunted School]] [[Lena B|Len
 - And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
 We never really thought of what these statements meant back then, but now looking back I wonder a couple of things:
 1. How the fuck did the spirits know of Sam and Colby, when I literally live in Germany?
-2. Did it refere
+2. Did it reference the Minions? If so, [[Minions 1]] or [[Minions 2]]?
+3. Did it talk about a puppeteer?
 ### Hypothesis A
