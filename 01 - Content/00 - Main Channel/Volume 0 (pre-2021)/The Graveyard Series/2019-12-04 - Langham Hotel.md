@@ -34,4 +34,5 @@ John explains that there is a theory that ghosts are a tape recording in some wa
 
 Rosie randomly drops that there is also a story of a butler and Napoleon?! AND THAT THE FUCKING BUTLER IS ON THE THIRD FLOOR TOO?! She says she's also heard that a German Prince is meant to have jumped out of a window and his ghost is also seen.
 
-### 21:17min - History 
+### 21:17min - History of the hotel 
+- The hotel was built in 1865 
