@@ -16,3 +16,4 @@
 
 After the "stopped" being haunted they decide to go to a haunted place and get REHAUNTED BRO WHAT THE FUCK
 
+Sam says the trip is because 
