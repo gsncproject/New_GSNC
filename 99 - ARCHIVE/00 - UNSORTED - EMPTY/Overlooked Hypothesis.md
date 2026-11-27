@@ -32,4 +32,6 @@ We never really thought of what these statements meant back then, but now lookin
 ### Hypothesis B - The Minions Connection 
 *Could the references to Sam und Lucy be connected to the entity groups previously classified as [[Minions 1]] and [[Minions 2]]?*
 #### Important Session Fragments 
-- 
+- "And I've been Lucy here" - April 4th, 2022 
+- "I'm sorry for being Lucy" - June 29th, 2022 
+- "Lucy, is she one of them?" - June 29th, 2022 
