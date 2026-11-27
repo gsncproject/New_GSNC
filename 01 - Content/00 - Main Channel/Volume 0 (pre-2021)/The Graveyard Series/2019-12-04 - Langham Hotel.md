@@ -41,4 +41,6 @@ Rosie randomly drops that there is also a story of a butler and Napoleon?! AND T
 - The entire third floor is supposed to be the most haunted 
 - *The entire time they keep hearing noises*
 
-When they get to the room the card thingy to open the door doens
+When they get to the room the card thingy to open the door doesn't work on the first try. On the second try it works seamlessly.
+- Why the fuck is the TV on?
+- Why the fuck
