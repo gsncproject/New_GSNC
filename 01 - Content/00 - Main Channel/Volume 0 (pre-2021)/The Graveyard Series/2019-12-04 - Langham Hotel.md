@@ -24,4 +24,5 @@ They get to stay in Room 333 which is supposedly the most haunted, and reception
 ### 9:25min - Meeting The Experts 
 **Experts at hand**: [[John Fraiser]] and [[Rosie O'Carroll]] 
 #### Story of Room 333 brought to you by [[Rosie O'Carroll]] 
-A victorian doctor spent a night in Room 333 with his bride, it was his wedding night, no one knows the circumstances as to why but the doctor murdered his bride in Room 333.
+- A victorian doctor spent a night in Room 333 with his bride, it was his wedding night, no one knows the circumstances as to why but the doctor murdered his bride in Room 333.
+- In 1973 the journalist James Alexander
