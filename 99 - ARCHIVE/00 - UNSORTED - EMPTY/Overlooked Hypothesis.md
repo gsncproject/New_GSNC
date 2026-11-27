@@ -8,4 +8,5 @@ During an paranormal investigation at this place [[Haunted School]] [[Lena B|Len
 - "Sam he plays with demons"
 - "Sam shoots with the shadows"
 - And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
+We never really thought of what these state
 ### Hypothesis A
