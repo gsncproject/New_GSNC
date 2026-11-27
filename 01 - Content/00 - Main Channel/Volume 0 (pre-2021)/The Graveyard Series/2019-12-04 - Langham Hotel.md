@@ -48,4 +48,5 @@ When they get to the room the card thingy to open the door doesn't work on the f
 Sam discovers the bathroom, and when Colby goes in it to film, the camera quality automatically lowers and its lagging. As well they remport that it is pretty hot in there. 
 Corey points out that 333 is also a number of the devil, because if a ghost knocks thrice it mocks the holy trinity.
 Jake wants to burn the ropes after what happened at the Queen Mary Ship.
-	Then Jake c
+	Then Jake proceeds to open an umbrella inside. AND COREY FREAKS OUT AHHHH
+Corey randomly opens the protective
