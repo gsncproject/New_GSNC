@@ -33,3 +33,5 @@ John explains that there is a theory that ghosts are a tape recording in some wa
 	After Sam asks him if he could explain a little more, John starts explaing that the theory is that there are certain types of stones possibily associated with a damp atmosphere as well, can kind of hold a particularly traumatic experience and replay it like a tape recording under certain circumstances. You can't really communicate with them but that's why you get a ghost that does the same walk or maybe walks behind a wall or door that might've been there once upon a time.
 
 Rosie randomly drops that there is also a story of a butler and Napoleon?! AND THAT THE FUCKING BUTLER IS ON THE THIRD FLOOR TOO?! She says she's also heard that a German Prince is meant to have jumped out of a window and his ghost is also seen.
+
+#
