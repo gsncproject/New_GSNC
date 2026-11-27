@@ -29,4 +29,4 @@ They get to stay in Room 333 which is supposedly the most haunted, and reception
 - Another story is that there was a famous cricketer, he was staying at the room and in the middle of the night he was woken by the sound of taps turning on, he went to the bathroom, water was gushing out through the taps.
 	- Sam immediately connects that to [[Queen Mary Ship (2)]]
 #### [[Stone-Tape Theory]] brought to you by [[John Fraiser]]
-John explai
+John explains that there is a theory that ghosts are a tape recording in some way and that when you for example see only half of the body, that there is a possibility that the floor was lowered or raised at some point
