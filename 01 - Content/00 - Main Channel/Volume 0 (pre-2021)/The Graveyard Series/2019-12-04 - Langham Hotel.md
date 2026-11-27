@@ -49,4 +49,4 @@ Sam discovers the bathroom, and when Colby goes in it to film, the camera qualit
 Corey points out that 333 is also a number of the devil, because if a ghost knocks thrice it mocks the holy trinity.
 Jake wants to burn the ropes after what happened at the Queen Mary Ship.
 	Then Jake proceeds to open an umbrella inside. AND COREY FREAKS OUT AHHHH
-Corey randomly opens the protective
+Corey randomly opens the protective glass of the window that IS THERE TO PREVENT MORE PEOPLE FROM COMMITTING SUICIDE BY JUMPING OUT
