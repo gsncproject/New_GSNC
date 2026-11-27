@@ -57,3 +57,5 @@ In the second room they have there are literally bird statues on the lamps by th
 As they explore the hotel further they find more birds. BIRRRRBBBB. And a whole lotta weird pictures and painting all around the hotel. All around the hotel there are birds. 
 
 Hello, they (specifically Corey) found [[Vortex|Vortexes]]. Oh now Colby found a handprint on the mirrors.
+
+In some room/hallway Sam admits that he had a dream of that exact same place
