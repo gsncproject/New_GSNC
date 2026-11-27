@@ -30,4 +30,6 @@ We never really thought of what these statements meant back then, but now lookin
 - "Sam shoots with the shadows"
 - And some statement that made us wonder whether the spirits were scared of Sam or of whatever was with him.
 ### Hypothesis B - The Minions Connection 
-*Could the references to Sam und Lucy be connected to the *
+*Could the references to Sam und Lucy be connected to the entity groups previously classified as [[Minions 1]] and [[Minions 2]]?*
+#### Important Session Fragments 
+- 
