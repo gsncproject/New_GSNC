@@ -19,3 +19,5 @@ After the "stopped" being haunted they decide to go to a haunted place and get R
 Sam says the trip is because they wanna prove that they're the best ghost hunters in the world.
 	Because in [[The Origin Series]] that guy said that they might be "stuck in this medium world"
 They are going to meet with two paranormal experts
+
+They get to stay in Room 333 which is supposedly the most haunted 
