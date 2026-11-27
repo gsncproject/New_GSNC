@@ -45,4 +45,4 @@ When they get to the room the card thingy to open the door doesn't work on the f
 - Why the fuck is the TV on?
 - Why the fuck is the light on?
 - And what the fuck is the window's problem?
-Sam discovers the bathroom, and when Colby goes in it to film, the camera 
+Sam discovers the bathroom, and when Colby goes in it to film, the camera quality automatically lowers and its lagging. As well they remport that it is pretty hot in there. 
