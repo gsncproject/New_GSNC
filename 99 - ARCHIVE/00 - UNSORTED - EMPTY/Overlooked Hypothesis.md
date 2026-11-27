@@ -45,3 +45,6 @@ We never really thought of what these statements meant back then, but now lookin
 - "Sam shoots with the shadows" - June 28th, 2022 
 - "A number" - June 28th, 2022 
 ### Hypothesis E - The Meaning of "Overlooked" Itself 
+*What is the exact meaning of the word "Overlooked" or what could it reference to?*
+#### Important Session Fragments 
+-
