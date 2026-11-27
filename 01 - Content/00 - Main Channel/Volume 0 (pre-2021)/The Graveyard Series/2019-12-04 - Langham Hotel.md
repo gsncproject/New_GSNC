@@ -60,4 +60,5 @@ Hello, they (specifically Corey) found [[Vortex|Vortexes]]. Oh now Colby found a
 
 In some room/hallway Sam admits that he had a dream of that exact same place. 
 
-omfg, they discove
+omfg, they discovered the Grand Ballroom.
+###
