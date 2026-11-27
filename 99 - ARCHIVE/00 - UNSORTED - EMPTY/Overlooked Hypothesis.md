@@ -40,3 +40,4 @@ We never really thought of what these statements meant back then, but now lookin
 #### Important Session Fragments 
 - "Sam, are we overlooked?" - April 4th, 2022 
 ### Analysis
+The interesting part of the Session Fragment is the little word that is "we", which is why I am considering multiple approaches 
