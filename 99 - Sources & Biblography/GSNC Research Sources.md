@@ -38,12 +38,6 @@
 - [Sam and Colby React: HellWeek 2021](https://youtu.be/ThpdP9WRPoE?is=RMgQchJPN0fpLt5u)
 - [Sam and Colby: Biltmore Hotel (Presidential Suite)](https://youtu.be/dhbiS7ZSRpA?si=fA6TxUajzNx33dTD)
 - [Sam and Colby: Farrar Day Six and Seven](https://youtu.be/oUV-u7CRyKE?si=2ve_gipF336oI-a7)
-- [Sam and Colby React: Goatman's Bridge](https://youtu.be/KvoFQbKTmeg?si=t4FSKkJXyA3Fj8P6)
-- [Sam and Colby React: Scariest Moments of all times](https://youtu.be/GesUUV4-fgA?si=tsJy6HlCC7rG5ysg)
-- [Sam and Colby React: Season Two](https://youtu.be/1qd4gsJ7PHg?si=6FHLWHqW83auJueU)
-- [Sam and colby React: HellWeek 2022](https://youtu.be/r78kE39oLw8?si=5Gq55QvMWdmn05Dy)
-- [Sam and Colby React: Knocking Method](https://youtu.be/OiQ76r4raQE?si=Si1VhEh3j_coUtqL)
-- [Sam and Colby React: Scariest Moments of 2023](https://youtu.be/zatxMpNTUhE?si=yyDcDs3BwbsTnRey)
 ## Other external sources
 - [PBS: Villisca Axe Murder House Documentary](https://www.pbs.org/video/the-villisca-axe-murder-house-part-1-4kexoy/)
 - [(Outside Transcript) Sam and Colby: Cression Asylum](https://iamtypist.dev/tools/youtube-transcript/SnFlIN1SW3Y)
