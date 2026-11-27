@@ -40,3 +40,4 @@ We never really thought of what these statements meant back then, but now lookin
 #### Important Session Fragments 
 - "I'm sorry for being Lucy" - June 29th, 2022 
 ### Hypothesis D - Sam's Life Path Number 
+**
