@@ -23,4 +23,5 @@ They are going to meet with two paranormal experts
 They get to stay in Room 333 which is supposedly the most haunted, and receptionist seems rather backholding about the paranormal stuff in the hotel when asked. 
 ### 9:25min - Meeting The Experts 
 **Experts at hand**: [[John Fraiser]] and [[Rosie O'Carroll]] 
-#### Story of Room 333 brough
+#### Story of Room 333 brought to you by [[Rosie O'Carroll]] 
+A victorian doctor spent a night in Room 333 with his bride, it was his wedding night
