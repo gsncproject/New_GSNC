@@ -22,4 +22,4 @@ We never really thought of what these statements meant back then, but now lookin
 2. Did it reference the Minions? If so, [[Minions 1]] or [[Minions 2]]?
 3. Did it talk about a puppeteer?
 4. Is it a connection to Sam's lifepath number nine? 
-### Hypothesis A 
+### Hypothesis A - 
