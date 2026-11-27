@@ -53,3 +53,4 @@ Corey randomly opens the protective glass of the window that IS THERE TO PREVENT
 
 In the second room they have there are literally bird statues on the lamps by the bed. That room should be "fine" because just the floor is haunted not the room.
 
+As they explore the hotel further they find more birds. BIRRRRBBBB. And a whole lotta weird pictures and painting all around the 
