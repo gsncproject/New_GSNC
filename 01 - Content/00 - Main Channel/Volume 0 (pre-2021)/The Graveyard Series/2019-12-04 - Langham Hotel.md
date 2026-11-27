@@ -37,4 +37,6 @@ Rosie randomly drops that there is also a story of a butler and Napoleon?! AND T
 ### 21:17min - History of the hotel 
 - The hotel was built in 1865 
 - It has 500 room of which all are supposedly haunted 
-- The doctor who killed his bridge
+- The doctor who killed his bride/wife killed himself afterwards too
+- The entire third floor is supposed to be the most haunted 
+- 
