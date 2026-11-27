@@ -40,3 +40,5 @@ Rosie randomly drops that there is also a story of a butler and Napoleon?! AND T
 - The doctor who killed his bride/wife killed himself afterwards too
 - The entire third floor is supposed to be the most haunted 
 - *The entire time they keep hearing noises*
+
+When they get to the room the card thingy to open the door doens
