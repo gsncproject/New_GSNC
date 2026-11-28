@@ -15,15 +15,15 @@ Coming for you
 Leave 
 It's a dream 
 Joline 
-John 
+[[John (pers. Inv.)|John]] 
 Change 
 Joline 
 Do we mention just 
 Beyond you 
 
-Do you want us 
-To jump over our
-Shadow 
+> Do you want us 
+> To jump over our
+> Shadow 
 
 Yeha 
 He's easy 
