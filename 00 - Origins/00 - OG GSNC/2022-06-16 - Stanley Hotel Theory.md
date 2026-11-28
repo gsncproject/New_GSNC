@@ -36,7 +36,7 @@ You have
 Four 
 Listening 
 Guess what 
-Ouija Board
+[[Ouija Board]]
 It's you 
 What am I?
 Power 
@@ -63,3 +63,15 @@ Open
 [[Paul (Stanley)]] is like the care-taker of the hotel 
 
 [[Lucy]] could be created by the Stanley Tour Vistors, cuz mostly the Tourguides are telling the story of a little girl froze to death in the very Concert Hall.
+
+---
+### Necrophonic
+
+Group 
+Spirit
+Take me 
+Colby 
+He was left 
+Me 
+Sam 
+Satan 
