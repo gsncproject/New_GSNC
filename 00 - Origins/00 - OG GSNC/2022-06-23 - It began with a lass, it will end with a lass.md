@@ -57,7 +57,19 @@ Sam
 How does it seem Sallie?
 [[Queen Mary Stuart]]
 Doc
-Queen Mary
+Mary 
+Right 
+Her 
+Queen 
+[[Steve (pers. Inv.)|Steve]]
+Take me 
+Please quiet 
+Queen Mary 
+Come back 
+My name 
+I can't 
+All
+
 
 ---
 # It began with a lass, it will end with a lass
