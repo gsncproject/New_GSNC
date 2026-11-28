@@ -13,11 +13,11 @@ Keep recording
 [[Tunnel]] 
 [[Theresa (pers. Inv.)|Theresa]] 
 Screen 
-[[Walter (pers. Inv.)|Wal]]  
+[[Walter (pers. Inv.)|Walter]]  
 Behind you 
 Statue 
 Farther 
 Book 
 Cable 
 Grandfather 
-Sam 
+[[Sam Golbach|Sam]] 

@@ -7,12 +7,12 @@ Goatman —> Near Lake Worth (from Virgina)
 ---
 ### Necrophonic
 Me 
-One 
+[[One]] 
 Anything 
 Back 
 Get on
 For more / Four more
-Devil 
+[[Devil]] 
 Yes 
 See it 
 Being save 
@@ -20,10 +20,10 @@ Yes
 I'm 
 Samuel / Same 
 Feel 
-Sam 
+[[Sam Golbach|Sam]] 
 Attachment 
 You'll find 
-Sam 
+[[Sam Golbach|Sam]] 
 Someone behind
 It is [[Lucy]] 
 Haunted group 
@@ -70,10 +70,10 @@ Open
 Group 
 Spirit
 Take me 
-Colby 
+[[Colby Brock|Colby]] 
 He was left 
 Me 
-Sam 
+[[Sam Golbach|Sam]] 
 [[Satan]] 
 Out of the 
 You guys 
