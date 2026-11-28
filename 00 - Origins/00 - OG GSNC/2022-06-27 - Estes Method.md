@@ -60,3 +60,9 @@ I could
 Keep talking 
 Bagans
 There is 
+This 
+He 
+Made a decision 
+Again 
+You said 
+Lucy is trap 
