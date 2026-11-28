@@ -9,11 +9,11 @@ Also Sam is easy to get.
 Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
 
 ---
-[[Lucy]]/[[Eddie (Stanley Hotel)]] = The Stanley Hotel
-[[Sallie]] = [[The Sallie House]]
+[[Lucy]]/[[Eddie (Stanley Hotel)]] = [[The Stanley Hotel|Stanley]]
+[[Sallie]] = [[The Sallie House|Sallie House]]
 [[Emily (Bellaire House)]]/[[Susie (Fairfield)]] = Madison 
 Sarah = Fairfield 
-[[Jackie (Queen Mary Ship)]] = Queen Mary
+[[Jackie (Queen Mary Ship)]] = [[The Queen Mary Ship|Queen Mary]]
 
 It just wants a friend (all of them). No one did actually exist.
 	*Calling out for [[Mommy]]* —> All of them.
@@ -24,7 +24,7 @@ Stanley = Toilet
 [[Lucy]] goes by the name [[Jackie (Queen Mary Ship)]] 
 [[Peter James]] 
 
-Queen Mary = [[Sam‘s Attachment]] 
+[[Queen Mary]] = [[Sam‘s Attachment]] 
 
 [[Breathe]] (EM) = [[Jackie (Queen Mary Ship)]] gasping for air.
 
