@@ -24,15 +24,15 @@ Stanley = Toilet
 [[Lucy]] goes by the name [[Jackie (Queen Mary Ship)]] 
 [[Peter James]] 
 
-[[Queen Mary]] = [[Sam‘s Attachment]] 
+[[The Queen Mary Ship|Queen Mary]] = [[Sam‘s Attachment]] 
 
 [[Breathe]] (EM) = [[Jackie (Queen Mary Ship)]] gasping for air.
 
-[[Jackie (Queen Mary Ship)]] = [[Lucy]] = Stanley/Queen 
+[[Jackie (Queen Mary Ship)]] = [[Lucy]] = [[The Stanley Hotel|Stanley]]/[[The Queen Mary Ship|Queen]] 
 
 [[Haunted School]] = NO!
 
-Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
+T = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / [[Jackie (unknown, Stanley Hotel)]] / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
 
 --- 
 ## Release Ritual
