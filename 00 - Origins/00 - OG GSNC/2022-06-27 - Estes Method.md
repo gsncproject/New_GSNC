@@ -47,3 +47,4 @@ All of us
 - *It's means the basement at the Conjuring* 
 - *All of these spirits are with SnC* 
 - *Sam DID NOT get his attachment at the Neidpath, instead he got it at the ship*
+
