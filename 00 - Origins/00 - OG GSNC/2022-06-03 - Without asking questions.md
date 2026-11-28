@@ -2,10 +2,10 @@
 
 >[[Sam Golbach]] = He almost got possessed at [[2022-05-22 - Zak Bagans Haunted Museum]]
 
-Eleven 
+[[Eleven]] 
 Get that 
 Murder 
-Sam 
+[[Sam Golbach|Sam]] 
 I am 
 He‘s cursed 
 Falling 
@@ -17,7 +17,7 @@ Multiply
 [[Me]] 
 [[It‘s me]] 
 All of us
-Sam 
+[[Sam Golbach|Sam]] 
 Mine 
 Need
 The calls
@@ -25,7 +25,7 @@ Everywhere
 He
 Who I?
 Borden 
-Nate 
+[[Nate Hardy|Nate]] 
 I am
 You *4x*
 Got me
@@ -35,7 +35,7 @@ Repeat
 Friendly
 Stuck in 
 Alright
-Sam 
+[[Sam Golbach|Sam]] 
 He made me
 Sorry I was
 Was that 
