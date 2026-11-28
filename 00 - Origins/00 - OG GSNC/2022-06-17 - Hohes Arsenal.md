@@ -10,3 +10,20 @@ This connects directly to [[Neidpath Castle Connection]] and [[Jake Webber]]. Th
 
 (*After consideration here is the full session*)
 ### Estes at the Hohes Arsenal
+I like you 
+Lena 
+Fear / Vier 
+They're twenty 
+I'm here 
+Quickly 
+Running 
+Lost 
+You know 
+Place 
+Mackie 
+No 
+Prisoner 
+You better 
+Stay 
+Lena 
+Empty 
