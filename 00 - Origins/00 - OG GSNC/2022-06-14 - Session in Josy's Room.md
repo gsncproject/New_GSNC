@@ -4,15 +4,20 @@ Cursed
 Leave here 
 Scratch 
 Down 
-Nine 
+[[Nine]]
 What's your name?
 I see you 
 Royal 
 Trapped 
 Keep recording 
-Tunnel 
+[[Tunnel]] 
 Theresa 
 Screen 
-Walter 
+Walter () 
 Behind you 
 Statue 
+Farther 
+Book 
+Cable 
+Grandfather 
+Sam 
