@@ -19,5 +19,17 @@ pretty 2x
 Estes Method 
 Sam 
 Miss me 
+
  >Scared of
  >Sam 
+ 
+ Talk 
+ Who cares?
+ Sitting there 
+ Let go 
+ He is 
+ Please 
+ Shanley 
+ Power 
+ Absolutely not
+ Who 
