@@ -1,1 +1,2 @@
-Retrocausality basically describes the physiclogical idea that the future can send signals to the past and with that communicate with it in any kind of way.
+# Retrocausality
+Retrocausality basically describes the physiclogical idea that the future can influence the past.
