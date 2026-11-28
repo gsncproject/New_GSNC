@@ -1,7 +1,7 @@
 #version_I #gsnc 
 
-# Lucy = Demon
-Lucy fooled us all the time and pretended to be the four Mary's etc. In addition, she pretended to be everyone.
+# [[Lucy]] = Demon
+[[Lucy]] fooled us all the time and pretended to be the four Mary's etc. In addition, she pretended to be everyone.
 
 She is our motherfucking attachment.
 

@@ -1,6 +1,6 @@
 #version_I #gsnc 
 
-If [[Lucy]] is actually the same as [[Sallie]], Emily,… then not only we‘re fucked, Sam and Colby are also fucked cuz [[Sallie]] is Sam‘s attachment.
+If [[Lucy]] is actually the same as [[Sallie]], Emily,… then not only we‘re fucked, Sam and Colby are also fucked cuz [[Sallie]] is [[Sam‘s attachment]].
 
 
 Also Sam is easy to get.
@@ -9,8 +9,8 @@ Also Sam is easy to get.
 Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
 
 ---
-[[Lucy]]/[[Eddie (Stanley Hotel)]] = Stanley 
-[[Sallie]] = Sallie House 
+[[Lucy]]/[[Eddie (Stanley Hotel)]] = The Stanley Hotel
+[[Sallie]] = [[The Sallie House]]
 [[Emily (Bellaire House)]]/[[Susie (Fairfield)]] = Madison 
 Sarah = Fairfield 
 [[Jackie (Queen Mary Ship)]] = Queen Mary
@@ -24,13 +24,13 @@ Stanley = Toilet
 [[Lucy]] goes by the name [[Jackie (Queen Mary Ship)]] 
 [[Peter James]] 
 
-Queen Mary = Sam‘s Attachment 
+Queen Mary = [[Sam‘s Attachment]] 
 
 [[Breathe]] (EM) = [[Jackie (Queen Mary Ship)]] gasping for air.
 
 [[Jackie (Queen Mary Ship)]] = [[Lucy]] = Stanley/Queen 
 
-Haunted School = NO!
+[[Haunted School]] = NO!
 
 Stanley = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / Jackie / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
 
