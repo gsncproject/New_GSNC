@@ -12,8 +12,8 @@ This connects directly to [[Neidpath Castle Connection]] and [[Jake Webber]]. Th
 ### Estes at the [[Hohes Arsenal]]
 I like you 
 Lena 
-Fear / Vier 
-They're twenty 
+Fear / [[Four|Vier]] 
+They're [[Twenty|twenty]] 
 I'm here 
 Quickly 
 Running 
