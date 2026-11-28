@@ -52,5 +52,5 @@ Assaulted
 Sure 
 Lower 
 [[Mark (pers. Inv.)|Mark]] 
-[[Gabriel (pers. Inv.)|]]
+[[Gabriel (pers. Inv.)|Gabriel]]
 Rose 

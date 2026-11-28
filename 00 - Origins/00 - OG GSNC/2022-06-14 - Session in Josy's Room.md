@@ -11,9 +11,9 @@ Royal
 Trapped 
 Keep recording 
 [[Tunnel]] 
-Theresa 
+[[Theresa (pers. Inv.)|Theresa]] 
 Screen 
-Walter  
+[[Walter (pers. Inv.)|Wal]]  
 Behind you 
 Statue 
 Farther 
