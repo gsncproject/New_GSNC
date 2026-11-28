@@ -1,6 +1,7 @@
 #version_I #theory #gsnc 
 
-
+Goatman —> Near Lake Worth (from Virgina)
+	2,1 Meter tall, human and goat creature
 
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
