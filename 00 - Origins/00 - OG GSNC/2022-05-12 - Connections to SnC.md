@@ -1,10 +1,10 @@
 #version_I #gsnc 
 
-We got rid of Lucy! 
+We got rid of [[Lucy]]! 
 
 Now we can focus on the things with the Mary
 
->Lucy stands for Lucifer
+>[[Lucy]] stands for Lucifer
 
 NAH ACTUALLY SHE STILL IS OUR ATTACHMENT!!!
 

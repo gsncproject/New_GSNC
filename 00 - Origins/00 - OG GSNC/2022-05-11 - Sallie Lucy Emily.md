@@ -32,7 +32,7 @@ Stanley = Toilet
 
 [[Haunted School]] = NO!
 
-T = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / [[Jackie (unknown, Stanley Hotel)]] / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
+[[The Stanley Hotel|Stanley]] = [[Paul (Stanley)]] / [[Eddie (Stanley Hotel)]] / [[Jackie (unknown, Stanley Hotel)]] / [[Lucy]] / Cowboy / [[Elizabeth Wilson]] / [[Flora Stanley]] / [[F.O Stanley]]
 
 --- 
 ## Release Ritual
