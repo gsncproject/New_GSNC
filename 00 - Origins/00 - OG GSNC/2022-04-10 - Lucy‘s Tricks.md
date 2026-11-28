@@ -15,4 +15,4 @@ Change is ahead, depends on how I move forward, it can open my eyes and I should
 #### 8 of the coins
 I'm supposed to do something with the situation.
 #### 9 of the rods
-Everything will come to light. Someday, somehow. However, there will be hurdles.
+Everything will come to light. Someday, somehow. However, there will be hurdles. 
