@@ -16,7 +16,7 @@ Well I
 Let me go 
 Redrum 
 pretty 2x
-Estes Method 
+[[Estes Method]] 
 Sam 
 Miss me 
 
