@@ -31,6 +31,12 @@ Put it
 It's a number 
 You are
 Both 
+Thirteen 
+You have 
+Four 
+Listening 
+Guess what 
+Ouija Board
 
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
