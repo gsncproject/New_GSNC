@@ -52,3 +52,7 @@ Himself
 Passion 
 Yeah 
 Stay with 
+*unreadable word*
+Stone 
+Sam 2x
+Mary 
