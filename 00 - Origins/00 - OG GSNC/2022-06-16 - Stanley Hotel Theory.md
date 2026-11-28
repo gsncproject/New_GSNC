@@ -2,7 +2,7 @@
 
 Goatman —> Near Lake Worth (from Virgina)
 	2,1 Meter tall, human and goat creature
-	[[Balial]] —> Satan
+	[[Balial]] —> [[Satan]]
 
 ---
 ### Necrophonic
@@ -33,7 +33,7 @@ You are
 Both 
 [[Thirteen]] 
 You have 
-Four 
+[[Four]] 
 Listening 
 Guess what 
 [[Ouija Board]]
@@ -74,16 +74,16 @@ Colby
 He was left 
 Me 
 Sam 
-Satan 
+[[Satan]] 
 Out of the 
 You guys 
 A young 
 We think that a young 
-Dean 
+[[Dean (pers. Inv.)]]  
 She's at 
 Celina 
 That's why 
-Steve 
+[[Steve (pers. Inv.)]]
 It's free will 
 Power 
 Sam and Colby 
