@@ -5,7 +5,7 @@ Personally
 Miss me?
 Mizpah 
 Break 
-Sam 
+[[Sam Golbach|Sam]] 
 Like you 
 Miss him 
 Hello 
@@ -17,11 +17,11 @@ Let me go
 Redrum 
 pretty 2x
 [[Estes Method]] 
-Sam 
+[[Sam Golbach|Sam]] 
 Miss me 
 
  >Scared of
- >Sam 
+ >[[Sam Golbach|Sam]] 
  
  Talk 
  Who cares?

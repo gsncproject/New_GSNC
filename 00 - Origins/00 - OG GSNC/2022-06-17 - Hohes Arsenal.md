@@ -20,7 +20,7 @@ Running
 Lost 
 You know 
 Place 
-Mackie 
+[[Mackie Albertson|Mackie]]
 No 
 Prisoner 
 You better 
@@ -57,5 +57,5 @@ You think
 More ways 
 Place 
 Quiet 
-Sam 
+[[Sam Golbach|Sam]] 
 run 
