@@ -79,16 +79,16 @@ Out of the
 You guys 
 A young 
 We think that a young 
-[[Dean (pers. Inv.)]]  
+[[Dean (pers. Inv.)|Dean]]  
 She's at 
 Celina 
 That's why 
-[[Steve (pers. Inv.)]]
+[[Steve (pers. Inv.)|Steve]]
 It's free will 
 Power 
 Sam and Colby 
 Gone 
-Four 
+[[Four]] 
 Focus
 Bring with 
 Where's she?
@@ -122,4 +122,4 @@ This is
 You'll see / [[Lucy]] 
 Pain 
 Looking 
-Steve
+[[Steve (pers. Inv.)|Steve]]

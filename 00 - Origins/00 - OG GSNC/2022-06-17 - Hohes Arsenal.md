@@ -7,3 +7,5 @@ While [[Lena B]] and I were at the Hohes Arsenal we did an [[Estes Method]] sitt
 „Yes, after you told Jake“
 
 This connects directly to [[Neidpath Castle Connection]] and [[Jake Webber]]. Though, I don‘t remember what question was asked.
+
+(*After consideration her*)
