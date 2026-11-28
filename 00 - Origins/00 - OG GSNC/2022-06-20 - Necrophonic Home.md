@@ -34,4 +34,17 @@ Goddangit
 This 
 I know
 This one 
-Yes 
+Yes true
+Energy 
+It's a man 
+He 
+Sam 
+No 
+I like this shit 
+Sam 
+Weak 
+Really 
+I said come on 
+Honestly 
+Prepare 
+H
