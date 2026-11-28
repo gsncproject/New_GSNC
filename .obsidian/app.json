@@ -2,5 +2,7 @@
   "promptDelete": false,
   "spellcheck": false,
   "newFileLocation": "folder",
-  "newFileFolderPath": "99 - ARCHIVE/00 - UNSORTED - EMPTY"
+  "newFileFolderPath": "99 - ARCHIVE/00 - UNSORTED - EMPTY",
+  "alwaysUpdateLinks": true,
+  "showUnsupportedFiles": true
 }
