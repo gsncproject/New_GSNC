@@ -60,4 +60,17 @@ Hey
 Behave her 
 Sam 2x 
 Me 
-Contro
+Control that 
+She thought 
+Noise 
+Neidpath 
+Some 
+[[Sam‘s Attachment]]
+Yet 
+Addiction 
+Beyond normal 
+[[Lucy]]
+Free 
+You see 
+I guess 
+Further to 
