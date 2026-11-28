@@ -54,7 +54,7 @@ Free
 I am 
 I'm 
 Sam 
-How does it seem Sallie?
+How does it seem [[Sallie]]?
 [[Queen Mary Stuart]]
 Doc
 Mary 
@@ -121,7 +121,7 @@ Remember us?
 Quite hot 
 A [[Friend]]
 I'm with you 
-Lucy's back 
+[[Lucy]]'s back 
 By then 
 Sam and Colby 
 
@@ -135,4 +135,4 @@ He was referring to the Stuart dynasty, which began with a female.
 
 BUT!!! What if we reinterpret that?
 
-It could mean (I mean he was already half-dead) that Sam‘s attachment could‘ve started with me and will end with me.
+It could mean (I mean he was already half-dead) that [[Sam‘s attachment]] could‘ve started with me and will end with me.
