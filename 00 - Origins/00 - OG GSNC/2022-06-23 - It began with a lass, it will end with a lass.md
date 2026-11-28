@@ -21,7 +21,18 @@ God
 With them 
 It's sad 
 Yes 
-Duf
+Dude 
+So 
+Stay 
+There is 
+You good 
+Yes it is 
+Multiple 
+Scared of being 
+Wait 
+High 
+Pass 
+
 
 ---
 # It began with a lass, it will end with a lass
