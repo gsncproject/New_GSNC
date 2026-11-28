@@ -7,4 +7,5 @@
 - It means the basement of the Conjuring 
 - Sam DID NOT get his attachment at the Neidpath, instead he got it at the ship 
 
-(*AGAIN after con*)
+(*AGAIN after consideration here is the full fucking session*)
+
