@@ -83,3 +83,15 @@ Someone bind her
 Don't bring 
 Way 
 Help 
+Church 
+My future 
+Come on 
+[[Lucy]]
+
+Borden 
+Hurry 
+Easy 
+You understand 
+Please 
+Team 
+[[Four]]
