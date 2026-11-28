@@ -49,3 +49,15 @@ Feeling
 Wanna talk?
 I hiding 
 Times 
+Up 
+Again 
+Looking 
+Who's there?
+It's him 
+Time 
+No, I can't 
+Hey 
+Behave her 
+Sam 2x 
+Me 
+Contro
