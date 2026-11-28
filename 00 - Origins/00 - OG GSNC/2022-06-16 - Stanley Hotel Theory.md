@@ -9,6 +9,18 @@ Goatman —> Near Lake Worth (from Virgina)
 Me 
 One 
 Anything 
+Back 
+Get on
+For more / Four more
+Devil 
+Yes 
+See it 
+Being save 
+Yes 
+I'm 
+Samuel / Same 
+Feel 
+
 
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
