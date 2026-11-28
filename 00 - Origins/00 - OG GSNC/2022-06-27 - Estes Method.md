@@ -56,3 +56,6 @@ Stay with
 Stone 
 Sam 2x
 Mary 
+I could 
+Keep talking 
+Bagans
