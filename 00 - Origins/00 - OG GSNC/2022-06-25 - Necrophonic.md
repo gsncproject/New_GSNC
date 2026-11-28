@@ -95,3 +95,17 @@ You understand
 Please 
 Team 
 [[Four]]
+Lizzie 
+Golbach 
+Windsor 
+So 
+No angel fell to 
+Human 
+Demon 
+Yes 
+This school 
+I see 
+[[Seven]]
+Yes 
+Nightfall 
+You
