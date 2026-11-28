@@ -65,4 +65,16 @@ He
 Made a decision 
 Again 
 You said 
-Lucy is trap 
+[[Lucy]] is trap 
+You know 
+You can't 
+Entire 
+Talk to us 
+Names 
+He 
+Mostly 
+Lost himself 
+Tell us who's talking 
+More do we 
+There's something 
+That can't Amanda 
