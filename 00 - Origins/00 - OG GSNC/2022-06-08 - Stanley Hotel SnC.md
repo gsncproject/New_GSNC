@@ -1,6 +1,6 @@
 #version_I #gsnc 
 
-It said Sam is in danger and they were tlking with [[Lucy]]. 
+It said [[Sam Golbach|Sam]] is in danger and they were tlking with [[Lucy]]. 
 
 AND it also means [[Lucy]] is a demon entity!! Posing as a little kid. It needs him for power/[[Energy]] to be alive.
 

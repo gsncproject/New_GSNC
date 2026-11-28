@@ -5,7 +5,7 @@ Coming
 To you
 
 > It‘s about 
-> Sam 
+> [[Sam Golbach|Sam]] 
 
 You 
 Do not 
@@ -15,23 +15,23 @@ You
 I am 
 Goatman 
 Come on 
-Sam 
+[[Sam Golbach|Sam]] 
 Joline 
 You
 About you
 Only (*or Tony*)
-Sam 
+[[Sam Golbach|Sam]] 
 Under 
 Go on 
 People 
-Sam 
+[[Sam Golbach|Sam]] 
 [[It‘s me]]
 [[Me]]
 You 
 Disrespectful 
 Something 
 Witnessed
-Colby
+[[Colby Brock]]
 You 
 Sam 
 You get 
