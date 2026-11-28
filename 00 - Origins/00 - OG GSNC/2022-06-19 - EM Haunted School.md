@@ -15,3 +15,9 @@ Things
 Well I 
 Let me go 
 Redrum 
+pretty 2x
+Estes Method 
+Sam 
+Miss me 
+ >Scared of
+ >Sam 
