@@ -71,7 +71,7 @@ I can't
 All
 On me
 Come on 
-One 
+[[One]] 
 Pendling 2x
 It's real 
 Listen 
@@ -117,7 +117,13 @@ You're heavy
 Remembering 
 Tudor 
 Remember this stuff 
-Reme,
+Remember us?
+Quite hot 
+A [[Friend]]
+I'm with you 
+Lucy's back 
+By then 
+Sam and Colby 
 
 ---
 # It began with a lass, it will end with a lass
