@@ -1,7 +1,8 @@
 #version_I #theory #gsnc 
 
-##
 
+
+--- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
 [[Lucy]] —> [[Tulpa]] (?)
 
