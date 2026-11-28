@@ -27,3 +27,12 @@ You better
 Stay 
 Lena 
 Empty 
+I'm all 
+This bitch 
+You 
+Able 
+A few things 
+Don't become us 
+We own this property 
+Mary 
+Joline 
