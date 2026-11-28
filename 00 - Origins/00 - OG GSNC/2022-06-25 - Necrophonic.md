@@ -74,3 +74,12 @@ Free
 You see 
 I guess 
 Further to 
+It's free to her 
+We all agreed 
+Stare 
+How 
+[[Lucy]]'s back 
+Someone bind her 
+Don't bring 
+Way 
+Help 
