@@ -19,19 +19,19 @@ You are the one
 [[One]]
 This journey 
 Again 
-Colby 
+[[Colby Brock|Colby]] 
 Don't end this thing 
 Brave 
 You hear 
 God 
 Don't intervene 
-Sam 
+[[Sam Golbach|Sam]] 
 War 
 Same 
 [[Seven]]
 Borden 
 Seth 
-Sam 
+[[Sam Golbach|Sam]] 
 Sam 
 Yes 
 Basement 

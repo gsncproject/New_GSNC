@@ -110,10 +110,10 @@ Yes
 Nightfall 
 You're confirmation 
 Team 
-Sam 
+[[Sam Golbach|Sam]] 
 It's time 
 You remember 
-Sam 
+[[Sam Golbach|Sam]] 
 September 
 Let you 
 Real 
