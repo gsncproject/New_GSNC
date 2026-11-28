@@ -13,7 +13,7 @@ Keep recording
 [[Tunnel]] 
 Theresa 
 Screen 
-Walter () 
+Walter  
 Behind you 
 Statue 
 Farther 
