@@ -108,4 +108,18 @@ I see
 [[Seven]]
 Yes 
 Nightfall 
-You
+You're confirmation 
+Team 
+Sam 
+It's time 
+You remember 
+Sam 
+September 
+Let you 
+Real 
+You 
+This memory 
+They have 
+Same 
+Judge me 
+Who can fall?
