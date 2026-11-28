@@ -10,7 +10,18 @@ To this day we have no fucking idea what this means.
 
 (*After further consideration and questioning my life choices that have led me here, Imma write the whole session of three pages worth of shit.*)
 
-
+Maybe it's something 
+You see 
+A lot 
+See us 
+Or did you 
+I am 
+Know crazy 
+God 
+With them 
+It's sad 
+Yes 
+Duf
 
 ---
 # It began with a lass, it will end with a lass
