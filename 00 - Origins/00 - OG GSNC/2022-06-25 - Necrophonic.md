@@ -130,3 +130,13 @@ We want freedom
 Freedom 
 What is the answer?
 A group of [[Four|four]]
+Team 
+Out of the 
+Bigger 
+Be kind 
+Free 
+Brave 
+After lunch 
+Sam and Colby 
+Damnit 
+[[Seven]]
