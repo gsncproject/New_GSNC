@@ -38,6 +38,8 @@ Listening
 Guess what 
 Ouija Board
 
+([[Jean Douglas|Jean]] is with [[Colby Brock|Colby]])
+
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
 [[Lucy]] —> [[Tulpa]] (?)
