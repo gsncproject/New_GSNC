@@ -1,6 +1,6 @@
 #version_I #gsnc 
 
-If [[Lucy]] is actually the same as [[Sallie]], Emily,… then not only we‘re fucked, Sam and Colby are also fucked cuz [[Sallie]] is [[Sam‘s attachment]].
+If [[Lucy]] is actually the same as [[Sallie]], [[Emily (Bellaire House)|Emily]],… then not only we‘re fucked, Sam and Colby are also fucked cuz [[Sallie]] is [[Sam‘s attachment]].
 
 
 Also Sam is easy to get.
