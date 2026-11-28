@@ -6,4 +6,4 @@
 - SnC will talk to [[Queen Mary Tudor]]
 - He needs [[Lucy]] 
 - He will learn
-	- (He is Sam)
+	- (He is [[Sam Golbach|Sam]])
