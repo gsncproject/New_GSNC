@@ -20,7 +20,17 @@ Yes
 I'm 
 Samuel / Same 
 Feel 
-
+Sam 
+Attachment 
+You'll find 
+Sam 
+Someone behind
+It is Lucy 
+Haunted group 
+Put it 
+It's a number 
+You are
+Both 
 
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
