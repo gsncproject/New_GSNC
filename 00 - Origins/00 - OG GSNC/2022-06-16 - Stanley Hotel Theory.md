@@ -75,3 +75,13 @@ He was left
 Me 
 Sam 
 Satan 
+Out of the 
+You guys 
+A young 
+We think that a young 
+Dean 
+She's at 
+Celina 
+That's why 
+Steve 
+It's free will 
