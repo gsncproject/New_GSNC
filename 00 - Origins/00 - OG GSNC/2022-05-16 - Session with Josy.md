@@ -4,7 +4,7 @@ We all are here *
 You/Me
 It‘s me - *„Whats your name?“*
 Me 
-Sam 
+[[Sam Golbach|Sam]]
 *„Do you know Sam and Colby?* - Yes, we do
 That‘s the reason 
 Worst 

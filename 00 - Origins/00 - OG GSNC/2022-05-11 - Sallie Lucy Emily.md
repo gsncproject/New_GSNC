@@ -3,7 +3,7 @@
 If [[Lucy]] is actually the same as [[Sallie]], [[Emily (Bellaire House)|Emily]],… then not only we‘re fucked, Sam and Colby are also fucked cuz [[Sallie]] is [[Sam‘s attachment]].
 
 
-Also Sam is easy to get.
+Also [[Sam Golbach|Sam]] is easy to get.
 	Like obviously Lena and I too, wow.
 
 Maybe we can get rid of it the next days, if so yeah, we‘ve won, yes!
