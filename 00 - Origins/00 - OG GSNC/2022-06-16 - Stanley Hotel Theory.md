@@ -37,6 +37,12 @@ Four
 Listening 
 Guess what 
 Ouija Board
+It's you 
+What am I?
+Power 
+Both 
+Many 
+Abou
 
 ([[Jean Douglas|Jean]] is with [[Colby Brock|Colby]])
 
