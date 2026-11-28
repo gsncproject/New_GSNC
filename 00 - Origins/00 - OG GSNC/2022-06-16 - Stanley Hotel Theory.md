@@ -25,7 +25,7 @@ Attachment
 You'll find 
 Sam 
 Someone behind
-It is Lucy 
+It is [[Lucy]] 
 Haunted group 
 Put it 
 It's a number 
@@ -42,7 +42,13 @@ What am I?
 Power 
 Both 
 Many 
-Abou
+About you 
+[[Lucy]] 
+You must look for 
+Find by the boys 
+I guess it's not again 
+Don't find 
+Open
 
 ([[Jean Douglas|Jean]] is with [[Colby Brock|Colby]])
 
@@ -52,8 +58,8 @@ Abou
 
 [[Eddie (Stanley Hotel)]] was probs in M&A‘s room 
 
-Lucy = Concert Hall and Basement / That‘s maybe why yk
+[[Lucy]] = Concert Hall and Basement / That‘s maybe why yk
 
 [[Paul (Stanley)]] is like the care-taker of the hotel 
 
-Lucy could be created by the Stanley Tour Vistors, cuz mostly the Tourguides are telling the story of a little girl froze to death in the very Concert Hall.
+[[Lucy]] could be created by the Stanley Tour Vistors, cuz mostly the Tourguides are telling the story of a little girl froze to death in the very Concert Hall.
