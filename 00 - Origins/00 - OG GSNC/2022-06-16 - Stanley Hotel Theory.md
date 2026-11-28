@@ -2,6 +2,13 @@
 
 Goatman —> Near Lake Worth (from Virgina)
 	2,1 Meter tall, human and goat creature
+	[[Balial]] —> Satan
+
+---
+### Necrophonic
+Me 
+One 
+Anything 
 
 --- 
 [[Eddie (Stanley Hotel)]] —> [[Haunted School]] / [[2022-04-16 - The Stanley Hotel (Return)]]
