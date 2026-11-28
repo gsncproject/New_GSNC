@@ -79,7 +79,20 @@ Goodbye
 Being 
 Listen 
 Belly/[[Billy (pers. Inv.)|Billy]]
-
+Shocking
+You can remember 
+Ash 
+My name 
+Man 
+[[Lucy]]
+Nothing 
+Adult 
+Under all 
+You'll loose 
+[[Nine]]
+Person 
+Me 
+Si
 
 ---
 # It began with a lass, it will end with a lass
