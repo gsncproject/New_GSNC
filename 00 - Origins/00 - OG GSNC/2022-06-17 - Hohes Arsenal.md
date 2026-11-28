@@ -8,4 +8,5 @@ While [[Lena B]] and I were at the Hohes Arsenal we did an [[Estes Method]] sitt
 
 This connects directly to [[Neidpath Castle Connection]] and [[Jake Webber]]. Though, I don‘t remember what question was asked.
 
-(*After consideration her*)
+(*After consideration here is the full session*)
+### Estes at the Hohes Arsenal
