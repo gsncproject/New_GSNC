@@ -44,7 +44,20 @@ The words
 pass my 
 Mary 
 Queen 
-Lucy
+[[Lucy]]
+Here 
+Tudor 
+You are Queen Mary 
+
+[[Friend]]
+Free 
+I am 
+I'm 
+Sam 
+How does it seem Sallie?
+[[Queen Mary Stuart]]
+Doc
+Queen Mary
 
 ---
 # It began with a lass, it will end with a lass
