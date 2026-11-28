@@ -48,3 +48,7 @@ All of us
 - *All of these spirits are with SnC* 
 - *Sam DID NOT get his attachment at the Neidpath, instead he got it at the ship*
 
+Himself 
+Passion 
+Yeah 
+Stay with 
