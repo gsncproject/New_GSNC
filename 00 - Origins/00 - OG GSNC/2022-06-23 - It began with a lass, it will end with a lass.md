@@ -8,6 +8,8 @@ Once again we have no questions to the recorded answers, but I just wanna addres
 
 To this day we have no fucking idea what this means.
 
+(*After further consideration and questioning my life choices that have led me here, Imma *)
+
 ---
 # It began with a lass, it will end with a lass
 (*This is what [[Lena B]] wrote*)
