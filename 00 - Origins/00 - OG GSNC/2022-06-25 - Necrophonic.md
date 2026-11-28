@@ -38,4 +38,14 @@ Think before
 Got you
 Here's losing 
 Church 
-Ms. Wilson
+Ms. Wilson 
+Paranormal 
+Time 
+Don't 
+Church 
+We are in 
+We stop 
+Feeling 
+Wanna talk?
+I hiding 
+Times 
