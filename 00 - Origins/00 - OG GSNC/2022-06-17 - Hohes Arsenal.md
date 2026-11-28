@@ -41,3 +41,18 @@ Joline
 
 Joline 
 Grown man 2x
+Bring 
+The law
+I don't think 
+[[Friend]]
+Her 
+This 
+Who wanna talk 
+French 
+Daughter 
+Listen 
+[[Friend]]
+[[Marie de Guise]]
+You think 
+More ways 
+Place 
