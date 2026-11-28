@@ -123,3 +123,10 @@ They have
 Same 
 Judge me 
 Who can fall?
+You know 
+Theory
+Trapped 
+We want freedom 
+Freedom 
+What is the answer?
+A group of [[Four|four]]
