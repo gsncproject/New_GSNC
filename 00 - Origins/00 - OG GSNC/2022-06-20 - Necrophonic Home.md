@@ -47,4 +47,13 @@ Really
 I said come on 
 Honestly 
 Prepare 
-H
+Hold him 
+Not again 
+Behave 
+Good talk 
+Ninety-One 
+Race 
+You know 
+It's him / real 
+Some kind 
+Me 
