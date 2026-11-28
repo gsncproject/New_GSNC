@@ -32,13 +32,13 @@ Same
 Borden 
 Seth 
 [[Sam Golbach|Sam]] 
-Sam 
+[[Sam Golbach|Sam]]  
 Yes 
 Basement 
 You totally agree 
 Freedom 
 Conjuring 
-Sam 2x 
+[[Sam Golbach|Sam]] 2x 
 All of us 
 ###### Notes that Lena aside
 - *It likes the EMF*
@@ -54,11 +54,11 @@ Yeah
 Stay with 
 *unreadable word*
 Stone 
-Sam 2x
+[[Sam Golbach|Sam]] 2x
 Mary 
 I could 
 Keep talking 
-Bagans
+[[Zak Bagans|Bagans]]
 There is 
 This 
 He 
@@ -77,4 +77,4 @@ Lost himself
 Tell us who's talking 
 More do we 
 There's something 
-That can't Amanda 
+That can't [[Amanda Raye|Amanda]] 
