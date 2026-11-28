@@ -31,12 +31,12 @@ You
 Disrespectful 
 Something 
 Witnessed
-[[Colby Brock]]
+[[Colby Brock|Colby]]
 You 
-Sam 
+[[Sam Golbach|Sam]] 
 You get 
 Awake
-Sam 
+[[Sam Golbach|Sam]] 
 Jojo 
 You 
 Goodbye 
@@ -47,10 +47,10 @@ Help me
 Higher 
 Kneel 
 Soon 
-Colby 
+[[Colby Brock|Colby]] 
 Assaulted
 Sure 
 Lower 
-Mark 
-Gabriel 
+[[Mark (pers. Inv.)|Mark]] 
+[[Gabriel (pers. Inv.)|]]
 Rose 
