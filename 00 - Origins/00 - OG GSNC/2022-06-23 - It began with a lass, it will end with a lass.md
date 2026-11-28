@@ -53,7 +53,7 @@ You are Queen Mary
 Free 
 I am 
 I'm 
-Sam 
+[[Sam Golbach|Sam]]   
 How does it seem [[Sallie]]?
 [[Queen Mary Stuart]]
 Doc

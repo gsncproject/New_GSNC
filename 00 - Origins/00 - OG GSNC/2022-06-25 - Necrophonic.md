@@ -58,7 +58,7 @@ Time
 No, I can't 
 Hey 
 Behave her 
-Sam 2x 
+[[Sam Golbach|Sam]] 2x 
 Me 
 Control that 
 She thought 
