@@ -15,3 +15,11 @@ Watching
 There's a group 
 Expect much 
 To meet a Borden 
+You are the one 
+[[One]]
+This journey 
+Again 
+Colby 
+Don't end this thing 
+Brave 
+You hear 
