@@ -23,3 +23,19 @@ Colby
 Don't end this thing 
 Brave 
 You hear 
+God 
+Don't intervene 
+Sam 
+War 
+Same 
+[[Seven]]
+Borden 
+Seth 
+Sam 
+Sam 
+Yes 
+Basement 
+You totally agree 
+Freedom 
+Conjuring 
+Sam 2x 
