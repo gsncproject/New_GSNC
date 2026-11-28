@@ -2,14 +2,14 @@
 
 (*This is just a summary bcuz I am to lazy to copy the entire session*)
 
-While [[Lena B]] and I were at the Hohes Arsenal we did an [[Estes Method]] sitting in the tree on the inner yard. The only important thing said during the entire session was:
+While [[Lena B]] and I were at the [[Hohes Arsenal]] we did an [[Estes Method]] sitting in the tree on the inner yard. The only important thing said during the entire session was:
 
 „Yes, after you told Jake“
 
 This connects directly to [[Neidpath Castle Connection]] and [[Jake Webber]]. Though, I don‘t remember what question was asked.
 
 (*After consideration here is the full session*)
-### Estes at the Hohes Arsenal
+### Estes at the [[Hohes Arsenal]]
 I like you 
 Lena 
 Fear / Vier 
@@ -56,3 +56,6 @@ Listen
 You think 
 More ways 
 Place 
+Quiet 
+Sam 
+run 
