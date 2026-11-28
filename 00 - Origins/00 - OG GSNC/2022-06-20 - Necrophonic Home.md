@@ -38,10 +38,10 @@ Yes true
 Energy 
 It's a man 
 He 
-Sam 
+[[Sam Golbach|Sam]]  
 No 
 I like this shit 
-Sam 
+[[Sam Golbach|Sam]]   
 Weak 
 Really 
 I said come on 
@@ -51,7 +51,7 @@ Hold him
 Not again 
 Behave 
 Good talk 
-Ninety-One 
+[[Ninety-One]] 
 Race 
 You know 
 It's him / real 
