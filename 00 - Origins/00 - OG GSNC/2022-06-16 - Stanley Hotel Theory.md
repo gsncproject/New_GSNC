@@ -79,9 +79,9 @@ Out of the
 You guys 
 A young 
 We think that a young 
-[[Dean (pers. Inv.)|Dean]]  
+[[Dean (pers. Inv.)|Dean]]
 She's at 
-Celina 
+[[CelinaSpookyBoo|Celina]] 
 That's why 
 [[Steve (pers. Inv.)|Steve]]
 It's free will 
@@ -109,7 +109,7 @@ Don't miss
 They gone 
 You and me 
 You got this 
-Celina 
+[[CelinaSpookyBoo|Celina]] 
 Redrum 
 You are here 
 Running 
