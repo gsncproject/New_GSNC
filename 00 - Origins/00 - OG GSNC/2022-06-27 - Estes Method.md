@@ -39,3 +39,8 @@ You totally agree
 Freedom 
 Conjuring 
 Sam 2x 
+All of us 
+###### Notes that Lena aside
+- It likes the EMF
+- [[Sam‘s Attachment]] has something to do with Conjuring 
+- 
