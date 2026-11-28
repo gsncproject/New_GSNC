@@ -28,3 +28,10 @@ Us
 Blonde
 Kind of 
 The train
+The culture 
+Sit 
+Goddangit 
+This 
+I know
+This one 
+Yes 
