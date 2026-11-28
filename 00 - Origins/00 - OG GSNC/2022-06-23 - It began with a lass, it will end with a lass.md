@@ -10,6 +10,8 @@ To this day we have no fucking idea what this means.
 
 (*After further consideration and questioning my life choices that have led me here, Imma write the whole session of three pages worth of shit.*)
 
+
+
 ---
 # It began with a lass, it will end with a lass
 (*This is what [[Lena B]] wrote*)
